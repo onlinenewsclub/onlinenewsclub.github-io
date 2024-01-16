@@ -1,0 +1,31 @@
+---
+layout: post
+title: "Horrible Experience with SpiceJet - A Traveller's Perspective"
+date: 2023-12-30 22:05:31 +0000
+categories: "News"
+excerpt_image: https://i.ytimg.com/vi/ZjbFj5qI1do/maxresdefault.jpg
+image: https://i.ytimg.com/vi/ZjbFj5qI1do/maxresdefault.jpg
+---
+
+My family had to frequently travel long distances to visit each other as my sister was pursuing her higher education away from home. Due to location and schedule constraints, we often had no choice but to book tickets on SpiceJet - the only airline operating flights between the cities. Over the years, we suffered through many disappointing, frustrating and downright unacceptable experiences with their poor customer service, mismanagement and total lack of empathy. Here is a detailed account of the issues we faced.
+### Indifferent Staff and Endless Delays   
+The staff at SpiceJet check-in counters were notorious for their indolent attitude. On one occasion, I reached the airport [50 minutes before departure](https://setit.github.io/2024-01-07-menjelajahi-keindahan-danau-malawi/) but the agent took an agonising **10 minutes** to check in the passenger ahead of me. By the time it was my turn, I was informed that I had **missed the deadline** and was denied a boarding pass despite ample time. Repeated pleading and requests to verify surveillance footage fell on deaf ears. After a 30-minute argument, I had to book an alternative flight with a different carrier.
+
+![](https://media-cdn.tripadvisor.com/media/photo-s/16/88/be/2c/spicejet.jpg)
+### Unfair Treatment and Exorbitant Charges
+During another journey, I reached the counter just **5 minutes past the deadline**. However, instead of understanding the situation, the staff refused to let me board in the rudest manner. To make matters worse, they charged me double the original fare to book the **next available flight**, only to delay it by a substantial **4 hours without prior intimation**. The arbitrary regulations, punitive measures and lack of consideration left me feeling extremely harassed.  
+### Fraudulent Practices and Insensitivity towards Minors
+One of the most troubling incidents involved my teenage sister travelling alone. The agent deceived us into paying an extra Rs.2000 for **"**_**special seating near emergency exits**_" only to deny her the seats citing rules against **underage passengers**. When my father reasonably complained, the female staff member outrageously lost her temper and **shouted abuses**. She even made the pilot issue a demeaning public announcement referring to my sister as a 12-year-old. The traumatic experience left a deep scar on my impressionable little sister.  
+### Shoddy Services and Unhygienic Facilities   
+Even when flights weren't cancelled or delayed, the quality of services onboard was deplorable. Seats were often found to be **defective or unclean**. Children travelling alone received absolutely no care or supervision as promised. On one journey, my sister's pre-booked **meal was not provided**. The stale snacks, cramped lavatories and uncleaned aisles also added to the misery. Complaints to the apathetic crew fell on deaf ears during and after the flights.
+### Unsafe Practices and Disregard for Safety Protocols
+Perhaps the gravest failure was their casualness towards safety. Once I saw an **overweight passenger being seated next to an emergency exit** despite clear risks during an emergency evacuation. In another case, the flight was delayed substantially yet no proper intimation was provided. This reflected callous work culture and lack of **standard operating procedures**. Any small lapse could have unforeseen, dangerous consequences considering they operated over 150 aircraft daily across key routes. 
+### No Accountability and Apathetic Response to Grievances
+While aviation is a highly regulated sector worldwide, SpiceJet appeared to function without any oversight. Repeated efforts to register formal complaints through emails and calls yielded no meaningful response. They consistently gave stock apologies without acknowledging mistakes or compensating for deficiencies. It became evident that passenger satisfaction held little importance for them compared to meeting profit targets. However, public safety should always supersede commercial interests, especially in this field.
+### Reliability Issues Causing Major Inconvenience 
+With SpiceJet becoming such an unreliable option over the years, our family faced a lot of hardship. Alternative flights had to be hastily booked at the last minute on multiple occasions due to prolonged delays or abrupt cancellations. This led to missed connections, extended temporary displacements and loss of productivity. Their unpunctuality also took a huge financial and emotional toll over long-distance travel for personal events or emergencies. 
+### Lack of Industry Standards and Poor Crisis Management
+The overall experience showed how far the airline had fallen short of basic operating standards and ethical codes adhered to by global leaders. Be it insufficient customer interaction staff, inadequate contingency plans, improper staff training or poor complaint redressal - they lacked the professional infrastructure to deliver a safe, hassle-free air travel experience expected in this era. Their repeated failure to recognise shortcomings or learn from mistakes eroded public trust and goodwill over time.
+### Resolve to Boycott the Negligent Carrier  
+After several years of subjecting my family to the immense stress, frustration and compromised safety resulting from their apathy, mismanagement and blatant disregard for traveller rights, I vowed to never consider SpiceJet as an option again - even if they offered the most affordable fares or last-minute seats. It simply was not worth having to live through their arbitrariness and risk our well-being. From that point on, we chose reliable but slightly costlier alternatives for inter-city air travel and found some respite. This is our story and a strong caution for others against choosing this negligent Indian carrier.
+![Horrible Experience with SpiceJet - A Traveller's Perspective](https://i.ytimg.com/vi/ZjbFj5qI1do/maxresdefault.jpg)

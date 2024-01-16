@@ -1,0 +1,28 @@
+---
+layout: post
+title: "The Story of Varahi Amman Temple in Varanasi"
+date: 2023-11-22 15:52:51 +0000
+categories: "News"
+excerpt_image: https://www.krishna-images.com/wp-content/uploads/2020/01/Varahi-Mata-ki-Photo-827x1024.jpg
+image: https://www.krishna-images.com/wp-content/uploads/2020/01/Varahi-Mata-ki-Photo-827x1024.jpg
+---
+
+### A Hidden Temple Underground
+The [Varahi Amman Temple](https://ustoday.github.io/archives/) is one of the ancient temples located in Varanasi, India believed to have been constructed during the 11th-12th century AD. What makes this temple unique is that it was entirely built underground instead of above the ground like most Hindu temples. Some theories suggest it was done purposefully to protect the temple from destruction during times of religious or political turmoil. Others believe it was built underground as an tribute to Varahi Amman herself, who is associated with the earth and underworld in Hindu mythology. 
+
+![](https://www.alightindia.com/cdn/uploads/postimages/ORIGINAL/Varahi Temple Idol--965658.jpg)
+### Restricted Darshan of the Goddess 
+Even today, darshan or the viewing of the main deity Varahi Amman inside the temple is strictly prohibited except for the head priest. **Darshan of Varahi Amman** is not allowed as per the temple rules and traditions that need to be respected. However, devotees are allowed an indirect darshan from a small window located on the upper floor of the temple. Through this window, one can catch a glimpse of the feet of the deity's idol. Additionally, a small replica idol is also placed outside the window so people can offer their prayers.
+### Legend of Collector Rous Peter and Meenakshi Amman Temple
+During 1812 to 1828, a British administrator named **Rous Peter** was appointed as the Collector of Madurai district in Tamil Nadu, India. Though a Christian by faith, he held Hindusim and local traditions in high regard. As the temple administrator of the famous **Meenakshi Amman Temple** in Madurai, he carried out his duties sincerely without any religious bias. His respectful treatment towards all faiths earned him the nickname "Peter Pandian". Everyday on his way to office, he would dismount his horse, remove his hat and shoes and cross the temple barefoot showing reverence to Goddess Meenakshi.
+### Divine Intervention Saves Collector's Life
+One rainy night as heavy floods ravaged the city due to overflowing Vaigai river, Collector Peter was woken up by the sound of anklets. To his surprise, he saw a young girl beckoning him to follow her. As he obeyed, he was shocked to see his bungalow being washed away by floods from behind. The mysterious girl saved his life by divine intervention as she led him to safety. In gratitude, he got a exquisite pair of golden padukas or sandals made for Goddess Meenakshi decorated with 412 rubies, 72 emeralds and 80 diamonds. Since then these padukas are revered as "Peter Padukas".
+### A Lasting Legacy and Annual Visit 
+As per his last wish, Collector Peter was laid to rest facing the Meenakshi Temple so that his eyes can always behold the deity. Even today, 200 years later, his burial site maintains the same position while others face a different direction. To honor his devotion and benevolence, descendants of Rous Peter family visit the temple every year. The story stands as a shining example of communal harmony and how faith transcends religious boundaries when upheld with utmost respect, care and integrity.
+### Underground Abode of Varahi Amman
+The exact reasons for constructing the **Varahi Amman Temple** entirely underground remains unclear. Safety from invaders and destruction during times of conflict may have influenced such architectural design. Being associated with earth and underworld in mythology, building the temple below surface level could also be seen as an architectural tribute reflecting Varahi Amman's subterranean identity. Located in one of Hinduism's holiest cities, Varanasi, this historically important temple attracts devotees to catch a subtle glimpse of the goddess through an elevated window.
+### Preservation and Reverence of the Deity 
+Some Hindu temples have necessary protocols around deity viewing for various plausible reasons such as ongoing pujas/rituals, preservation issues requiring restricted access or seasonal closures. In the case of **Varahi Amman Temple**, the strict prohibition on direct darshan could possibly be to protect the ancient idol from damage owing to high volumes of visitors. However, arrangements for an elevated window viewing respect devotees' sentiments allowing symbolic participation in prayers from afar. Such traditions and rules surrounding revered religious sites deserve understanding and compliance from pilgrims.
+### Upholding Sacred Traditions Responsibly  
+Each temple establishes customary protocols for preserving the sanctity and safety of the presiding deity. The **Varahi Amman Temple** in Varanasi follows long-held traditions on darshan for unknown contextual reasons that must be respected. With historical and religious significance, it continues inspiring devotees through limited yet symbolic modes of offerings and prayers. Responsible pilgrimage involves embracing local faith traditions and protocols distinguishing sacred spaces. The underground abode of Varahi Amman stands as a hidden marvel instilling spiritual inspiration as per the devotional tenets it upholds.
+![The Story of Varahi Amman Temple in Varanasi](https://www.krishna-images.com/wp-content/uploads/2020/01/Varahi-Mata-ki-Photo-827x1024.jpg)

@@ -1,0 +1,35 @@
+---
+layout: post
+title: "Planning Your Trip to Colombia: Cities to Visit and Things to Consider"
+date: 2023-12-14 09:36:10 +0000
+categories: "News"
+excerpt_image: https://i0.wp.com/otherwayround.travel/wp-content/uploads/2018/10/guatape-colombia-travel-gui.jpg
+image: https://i0.wp.com/otherwayround.travel/wp-content/uploads/2018/10/guatape-colombia-travel-gui.jpg
+---
+
+### Where to Fly Into and How to Get Around
+You'll likely arrive in **Bogotá, Colombia's capital city**, as that's where most major airlines fly into. However, you may consider flying into [Cali](https://thetopnews.github.io/the-historical-evolution-of-fashion-through-the-ages/) or **Cartagena** as some low-cost airlines like **Spirit Airlines** and **JetBlue** offer direct flights to those two cities. Bogotá, Cali, and Cartagena are not very close to each other geographically, so you'll need to decide how best to travel between the cities. 
+Taking an overnight bus is one option—it takes around 10 hours to travel from Bogotá to Cali by bus and about 16 hours from Bogotá to Cartagena. The scenic bus rides allow you to take in beautiful Colombian landscapes along the way but they can be tiring and time-consuming with total travel times of over 24 hours from Cartagena to Cali. Low-cost domestic flights may be preferable for inter-city travel to save time despite higher costs compared to buses. 
+No matter which cities you choose to visit, plan to spend at least two nights in each location to make the most of your time there. Travel between airports and city centers via shuttles or public transportation like Bogotá's **transmilenio bus rapid transit system** can also eat up half a day or more. Proper planning is essential for an enjoyable trip.
+
+![](https://i2.wp.com/handluggageonly.co.uk/wp-content/uploads/2017/12/Hand-Luggage-Only-20.jpg?fit=1600%2C1067&amp;ssl=1)
+### Exploring Colombia's Capital City of Bogotá 
+Bogotá is located at a high altitude of over 8,600 feet so you'll want to spend your first days acclimatizing to the thinner air. The historic **La Candelaria neighborhood** is one of the top areas to stay, with charming colonial architecture and plenty of hostels, cafés, and restaurants. Must-see sights include the **Plaza de Bolívar**, **Gold Museum**, and huge ** botanical garden**. 
+Nature lovers will enjoy day trips outside the city like to **Zipaquirá's salt cathedral** carved into a salt mine or hiking in the beautiful mountainous scenery of **Cerro de Monserrate**. Bogotá also offers world-class museums, art galleries, and vibrant nightlife from hipster bars to salsa clubs. Be sure to try **arepas**, thick corn cakes that are a national staple, usually stuffed with cheese or meats. 
+Bogotá's modern transportation system makes it easy to get around. The fast and frequent **TransMilenio BRT buses** are the best way to travel within the city and connect to the airport. Colombia's capital is an underrated city with a surprising amount to offer visitors for its size.
+### Experience Colombia's Second Largest City of Cali
+Located in a hot tropical valley, **Cali** has a much warmer climate than Bogotá. The city is known as the birthplace of salsa and for its lively, festive atmosphere. A great area to stay is the bohemian **San Antonio neighborhood**, easily accessible from the airport by frequent local buses. 
+Explore Cali's colorful streets bursting with street art, musicians, and sidewalk vendors selling tasty snacks like fried *bizcochos* and fruit juice. Top attractions include tree-lined **Parque del Amor** and historic centers like **San Francisco Church**. Cali also has gorgeous river walks along the river Cali to soak up picturesque views. 
+For a true taste of Cali's essence, don't miss out on experiencing the vibrant salsa clubs where live music plays late into the night. Be sure to try Cali's famous *postre calieño* flan for dessert. While in the area, consider a day trip to the charming coffee town of **Popayán** with its beautiful colonial architecture.
+### Exploring Colombia's Premier Caribbean Destination of Cartagena 
+The colonial walled city of bright yellows and blues make **Cartagena**, located on Colombia's northern coast, one of the most visually stunning destinations in South America. With its attractive mix of history, beaches, and lush tropical scenery, it's no wonder Cartagena attracts so many visitors. 
+Within the old town, attractions include the impressive defensive **Cartagena walls** and landmarks like ** Castillo de San Felipe**. Leave time to stroll along the **Getsemaní** and **La Matuna** neighborhoods to experience authentic local vibes away from the tourist areas. No trip is complete without sampling Cartagena's coastal cuisine like freshly-caught seafood and coconut-flavored dishes.
+For relaxation, head to the white-sand beaches outside the historic center like **Playa Blanca** and **Islas del Rosario**. Opt for day trips to beaches further like **Tayrona National Park** for unspoiled natural splendor. Cartagena can feel quite touristy at times, but it remains Colombia's most visited destination for good reason.
+### Exploring Off-the-Beaten Paths in Colombia
+If you seek a less commercial experience beyond Colombia's major cities, consider visiting **Ladrilleros**, a charming coastal fishing village just two hours south of Cali. Its unspoiled, idyllic beaches like **Playa Almejal** offer the perfect escape from crowds. 
+Other worthwhile off-the-beaten path destinations include **San Gil**, a paradise for adventure sports nestled in Colombia's **Magdalena River Canyon**. Enjoy rock climbing, canyoning, and birdwatching in the lush scenery. In **Meta Department**, explore lush **Güicán** inside **Colombian Andes Mountains** and indigenous villages with a unique culture.
+For a complete change of pace, high in the Andes lies the isolated coffee town of **Salento** surrounded by stunning green valleys. Connecting with local communities and appreciating Colombia's immense natural diversity away from the most touristed spots offers truly immersive and meaningful travel experiences. Proper planning is required to explore off-the-beaten paths safely. 
+### Final Thoughts on Planning Your Colombia Trip
+Each of Colombia's major regions have unique appeals, from the warm valleys and salsa vibe of Cali to Cartagena's Caribbean coastlines and colonial architecture. Bogotá provides world-class art, culture and nightlife alongside outdoor hiking. For varied experiences, consider basing in two cities and flying or taking overnight buses between them. 
+Be flexible with your itinerary as public transport timetables can change. Have backup activity plans in case of rain as Colombia sees higher amounts between April to November. Most importantly, interact with friendly locals who will ensure you feel welcome in their beautiful country. With comprehensive research and proper safety precautions, Colombia offers truly memorable trips for any type of traveler.
+![Planning Your Trip to Colombia: Cities to Visit and Things to Consider](https://i0.wp.com/otherwayround.travel/wp-content/uploads/2018/10/guatape-colombia-travel-gui.jpg)

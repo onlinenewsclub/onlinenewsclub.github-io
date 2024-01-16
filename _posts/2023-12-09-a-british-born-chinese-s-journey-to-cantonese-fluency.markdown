@@ -1,0 +1,28 @@
+---
+layout: post
+title: "A British Born Chinese's Journey to Cantonese Fluency"
+date: 2023-12-09 14:12:24 +0000
+categories: "News"
+excerpt_image: https://static2.businessinsider.com/image/5955549da3630ff9008b678e-1190-625/these-15-photos-show-hong-kongs-journey-from-british-rule-to-today.jpg
+image: https://static2.businessinsider.com/image/5955549da3630ff9008b678e-1190-625/these-15-photos-show-hong-kongs-journey-from-british-rule-to-today.jpg
+---
+
+### Early Exposure through Parents
+Growing up with Hong Kong immigrant parents, I was immersed in Cantonese from a young age. My first words were in Cantonese as they spoke it regularly at home. Having parents who only spoke their mother tongue meant Cantonese was the main language I heard and used in my early childhood. I completed my Cantonese GCSE exams in school, gaining a solid literacy foundation in the language. While immersed in Cantonese at home, I mainly interacted with and went to school with Dutch speakers after moving away from Hong Kong at a young age.
+
+![](https://www.mediareach.co.uk/wp-content/uploads/2015/05/BritishBornChinese-Timeline.jpg)
+### Mandarin Lessons and Lack of Conversational Practice
+After three years of [Mandarin language lessons](https://codeces.github.io/2024-01-08-sri-lanka-ya-gezi-xdclkenin-turizm-potansiyelini-ke-u015ffedin/), I discovered most of my Chinese friends spoke **Cantonese or other Chinese dialects** instead of Mandarin. Whether in the US or abroad, the dialects seemed more prevalent than Mandarin. I decided to continue with Mandarin to achieve **ultimate Chinese language proficiency**. However, conversing mainly in Dutch outside of home meant limited opportunities to practice and improve my Cantonese speaking. 
+### Passive Understanding but Limited Vocabulary  
+While I could understand most Cantonese conversations and discussions, my active vocabulary was quite restricted. Without enough interaction with native speakers after leaving Hong Kong, I struggled to engage in deeper discussions or tell jokes in Cantonese. The only person I spoke Cantonese with regularly was my then girlfriend, who learned it through Hong Kong television shows. I realized I had the language skills of an **"overgrown first grader"** when trying to hold conversations.
+### Dating a Japanese Half-Cantonese Speaker
+Dating a girl who was half Japanese but grew up learning Cantonese through TV shows from Hong Kong somewhat alleviated my lack of conversational partners. It was refreshing to have someone to practice communicating with who was not a native but passionate about learning the language through media exposure. We would test each other's vocabulary and comprehension skills through various dialogues and discussions. While not a replacement for immersion, it helped expand my conversational toolbox beyond basic exchanges.
+### Unmet Potential from Early Exposure 
+Looking back, I realize I did not maximize the benefits of early Cantonese exposure at home. Without consistent practice outside the home environment after leaving Hong Kong, my skills plateaued below the potential given my early immersion. While I had a strong foundation in **listening comprehension** and **reading proficiency**, **speaking and active vocabulary** fell behind. It was disappointing that a language I essentially grew up with did not develop into **high-level fluency**.
+### Committing to Improving Weaker Areas
+To better utilize the early start I had, I am dedicated to improving my weaker active language skills. Finding conversation exchange partners and communities allows consistent practice opportunities missing before. Improving weaker areas like vocabularly and creative expression through **storytelling** can help achieve the fluency matching my roots. With renewed focus and immersion through exchanges, tutorials and media, I hope to develop fluency befitting someone from a Cantonese family background.
+### Overcoming Self-doubt around Language Ability 
+My initial self-doubt around having the intelligence for another language like Cantonese stemmed from lack of confidence in my language learning ability overall. Reflecting on attaining GCSE-level skills originally without issue reassured me of my language learning potential. With a solid foundation already in place and strong motivation to strengthen areas of weakness, I am determined to prove my self-doubt misplaced. By committing to an **immersion-focused** approach this time, I aim to reach a level of Cantonese fluency previously thought impossible.
+### Future Goals - Proficiency through Immersion and Storytelling  
+My ultimate goal is to achieve **high-level fluency** in both Cantonese speaking and storytelling abilities. This would allow engaging elderly relatives more fully in their native tongue. I aspire to reach a level where I can tell personal anecdotes or joke intuitively like a local. Going forward, my language learning approach will focus on full immersion through exchanges with native speakers, conversational communities and Hong Kong media. With consistency and a storytelling focus, I hope to fully realize my potential for Cantonese and make up for lost grounding through renewed commitment to the language of my heritage.
+![A British Born Chinese's Journey to Cantonese Fluency](https://static2.businessinsider.com/image/5955549da3630ff9008b678e-1190-625/these-15-photos-show-hong-kongs-journey-from-british-rule-to-today.jpg)

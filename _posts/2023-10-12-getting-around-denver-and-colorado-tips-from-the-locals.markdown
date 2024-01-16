@@ -1,0 +1,24 @@
+---
+layout: post
+title: "Getting Around Denver and Colorado: Tips From the Locals"
+date: 2023-10-12 02:13:31 +0000
+categories: "Camping & hiking"
+excerpt_image: https://www.tripsavvy.com/thmb/YeMWbHYWtFBRG3A48PUI08GAKdA=/2120x1415/filters:fill(auto,1)/PublictransportationinDenverColorado-5bfd976e46e0fb00269e3221.jpg
+image: https://www.tripsavvy.com/thmb/YeMWbHYWtFBRG3A48PUI08GAKdA=/2120x1415/filters:fill(auto,1)/PublictransportationinDenverColorado-5bfd976e46e0fb00269e3221.jpg
+---
+
+### Denver Rush Hour Traffic is a Nightmare
+As a long term resident of twenty-five years, Bethany has seen firsthand how traffic has grown worse in Denver. According to her, the drive from three to seven in the afternoon on Fridays can be disastrous. Especially on **major highways like I-70**. Due to constant growth and development, [Denver rush hour](https://lesvoyages.github.io/2023-10-28-comment-l-agitation-xe0-hong-kong-renforce-le-nationalisme-en-chine/) has become hellish. Bethany avoids it at all costs by scheduling around peak times or staying home altogether on Fridays. 
+
+![](https://i.pinimg.com/originals/e6/1f/81/e61f817798050780e50567e75309aa7e.png)
+### Use Alternative Routes and Apps to Beat the Crowds 
+Thankfully, there are tools to help navigate Denver's congested roads. Bethany relies heavily on the **Waze navigation app**, which excels at routing drivers on surface streets and back roads. This has led her on many unexpected explorations of parts of the city she never knew existed. By tapping into real-time traffic reports from other users, **Waze offers alternative routes** that save significant time over sitting in bumper-to-bumper highway lanes. With a little planning and creativity, it's possible to avoid the worst of Denver's traffic.
+### Winter Driving in the Mountains Requires Special Precautions
+The mountain roads leading to Colorado's ski resorts and scenic areas present their own challenges, especially in winter. Both Bethany and the second contributor stress being fully prepared for changing conditions. **Survival gear like blankets, water, food, and jumper cables** is a must-have in case of breakdown or accident. **Snow tires or chains** may be required depending on weather. Perhaps most importantly, never **attempt to install chains** on the side of an icy mountain highway during a snowstorm. It's better to wait for help from experienced Colorado locals. Proper planning and equipment can make risky mountain drives significantly safer.
+### I-70 Provides the Quickest Trip But Comes with Risks  
+For a direct shot west to places like **Grand Junction**, I-70 is the fastest interstate option described. However, as the second local points out, this route is prone to traffic, accidents, rock slides, construction delays, and closures - all of which can transform an otherwise smooth drive into hours of frustration. **Seasonal factors** like snow also close I-70 periodically over mountain passes. A slightly longer alternative mentioned is taking **US-24 northwest from Colorado Springs** for slower but more consistent travel with magnificent Rocky Mountain scenery. Speed must be weighed against reliability when planning Colorado road trips.
+### Check for Real-Time Road Conditions Before Heading Out
+Before setting out on any Colorado drive, both contributors emphasize checking the **CDOT website** for up-to-date information. Road and weather conditions here change rapidly, so it's critical to have the latest details on **closures, delays, or requirements like chains**. As the second local pointed out, I-70 was unexpectedly shut down the day they posted due to a nearby wildfire. Advance knowledge of surprises like that prevents would-be travelers from getting stranded or rerouted far out of their way. Up-to-the-minute alerts enable choosing routes wisely.
+### Ensure Adequate Supplies and Plan for Potential Delays  
+Given how unpredictably mountains weather can turn, the wise Colorado driver always plans for potential prolonged roadside waits. The second contributor carries a full **emergency kit** with essentials to survive comfortably if stuck for many hours. It's also prudent to maintain ample fuel and have accommodations booked beforehand, as **Rocky Mountain hotels fill up quickly**. Unexpected delays or storms may push planned arrival times back dramatically. By packing properly and building flexibility into itineraries, travelers can feel secure tackling Colorado's beautiful but occasionally treacherous roads. Advance preparation optimizes both safety and enjoyment of scenic trips through this special Western state.
+![Getting Around Denver and Colorado: Tips From the Locals](https://www.tripsavvy.com/thmb/YeMWbHYWtFBRG3A48PUI08GAKdA=/2120x1415/filters:fill(auto,1)/PublictransportationinDenverColorado-5bfd976e46e0fb00269e3221.jpg)

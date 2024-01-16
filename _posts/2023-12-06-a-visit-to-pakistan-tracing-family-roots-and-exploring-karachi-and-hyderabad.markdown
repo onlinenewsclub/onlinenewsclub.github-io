@@ -1,0 +1,25 @@
+---
+layout: post
+title: "A visit to Pakistan: Tracing family roots and exploring Karachi and Hyderabad"
+date: 2023-12-06 06:17:25 +0000
+categories: "News"
+excerpt_image: https://www.app.com.pk/wp-content/uploads/2021/12/BUDDHIST-TRAIL-EXPLORING-RUINS-OF-ANCIENT-KINGDOM-OF-GANDHARA-IN-PAKISTAN-768x403.jpg
+image: https://www.app.com.pk/wp-content/uploads/2021/12/BUDDHIST-TRAIL-EXPLORING-RUINS-OF-ANCIENT-KINGDOM-OF-GANDHARA-IN-PAKISTAN-768x403.jpg
+---
+
+One of the most meaningful experiences for anyone with familial ties to Pakistan is to journey back and reconnect with their ancestry. For two friends originally from Hyderabad and Kotri who immigrated as children during partition, a recent trip opened old wounds but also reignited cherished memories from their early lives. Read on to learn about their profound visit retracing roots in Sindh and experiencing modern life in Karachi and the tranquil city of Hyderabad.  
+### A Sentimental Discovery in Hyderabad
+Accompanied by their local friend, the pair traveled from Karachi to Hyderabad hoping to find where they had each lived as young boys. Using faded recollections, the friend from Hyderabad impressively located his exact house, now occupied by a Muslim family. Welcoming the emotional reunion, the kind residents shared an old photo album containing early pictures of the man's forefathers. Gazing at images of himself as a child, he broke down at reconnecting with his long lost beginnings.  
+
+![](https://blog.graana.com/wp-content/uploads/2020/08/iStock-1178452874-min-1-1.jpg)
+### Exploring the Past and Present of Kotri  
+Sadly, less information meant the woman was unable to trace her original home. But visiting her native Kotri still held significance. Walking streets that had witnessed her early years living side by side with Sindhi Hindus and Muslims strengthened her bond to the area. She was fascinated observing how the once small town had vastly grown into a bustling urban center while preserving cultural heart. Spending time in the vicinity fostered a sense of belonging to the rich history she felt disconnected from.
+### Experiencing Modern Life in Karachi       
+No trip to Pakistan is complete without time in its largest coastal metropolis. The friends immersed themselves in Karachi exploring diverse neighborhoods, sampling diverse cuisine and shopping for arts, crafts and textiles. Interacting with locals gave insights into contemporary lifestyles and the harmonious coexistence of its ethnic, religious and linguistic communities. Experiencing first-hand its energetic vibe, burgeoning art scene and rising skyline contrasted images of a perceived unstable city. Their perception of Karachi as a "crime-ridden" place did not align with their safe, fascinating visit.
+### Relaxing in the Calm of Hyderabad   
+After busy days in Karachi, resting in the smaller, tranquil city of Hyderabad offered a welcome change of pace. Strolling tree-lined streets and admiring historical architecture transported them to a slower, gentler era. Experiencing its vivid cultural traditions and delicacies like **_biryani and haleem_** enriched their voyage into Sindhi heritage. Interacting with local university students, they were impressed by the high [literacy rates](https://pagetimes.github.io/2024-01-09-uc0c1-ub9c8-ub9ac-ub178-uacf5-ud654-uad6d/) and empowerment of women, contradicting stereotypes around opportunities in smaller Pakistani cities. Overall, Hyderabad charmed them with its blend of antiquity and modern comforts.      
+### Bonds with Local Friends Strengthened Understanding
+Crucial to their favourable experience was befriending caring locals well-versed in local customs and nuances. Guides like their Sindhi companion educated them on cultural etiquette, practical tips and helped navigate challenges of language barriers. Warmly hosting them in homes strengthened cross-cultural bonds and exposed them to hospitable Pakistani kindess. Interactions tempered preconceived fears and prejudices, fostering appreciation for communal harmony and spirit of generosity among ordinary citizens. Their new friends became windows into the diversity within communities and complexity of local realities often obscured in international media portrayals.
+### Lessons on Reconciliation and Inclusiveness  
+This auspicious homecoming journey for the friends held profound life lessons. Witnessing how families rebuild lives amid traumatic histories of loss and displacement imparted optimism. Experiencing hospitality from current dwellers of their childhood abodes reinforced humanity’s shared capacity for compassion. Most significantly, reconnecting to places and encountering open-hearted locals kindled hope that communities can reconcile and coexist in diversity. Their visit suggests travels aiding understanding may play a role in mending divisions and fostering mutual recognition between peoples.
+![A visit to Pakistan: Tracing family roots and exploring Karachi and Hyderabad](https://www.app.com.pk/wp-content/uploads/2021/12/BUDDHIST-TRAIL-EXPLORING-RUINS-OF-ANCIENT-KINGDOM-OF-GANDHARA-IN-PAKISTAN-768x403.jpg)

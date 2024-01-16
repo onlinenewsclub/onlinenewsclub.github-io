@@ -1,0 +1,26 @@
+---
+layout: post
+title: "Travel Guide to Tanzania"
+date: 2023-10-11 07:43:07 +0000
+categories: "News"
+excerpt_image: https://safarijunkie.com/wp-content/uploads/2015/09/travel-guide-to-tanzania--600x900.jpg
+image: https://safarijunkie.com/wp-content/uploads/2015/09/travel-guide-to-tanzania--600x900.jpg
+---
+
+### Planning Your Trip
+Doing your research before traveling to Tanzania will help ensure a safe and enjoyable experience. Check the [**U.S. State Department**](https://travel.state.gov/content/travel/en/international-travel/International-Travel-Country-Information-Pages/Tanzania.html) website for the latest travel advisories. Make sure to get all recommended vaccinations, such as **Yellow Fever, Hepatitis A & B, Typhoid fever, and Meningitis**, from your doctor at least a month in advance. The official currency in Tanzania is the Tanzanian Shilling (TZS). Exchange money at the airport or bank and carry some cash as credit cards are not widely accepted. 
+
+![](http://blog.afcholidays.com/wp-content/uploads/2021/07/tanzania1-scaled.jpg)
+### Staying Healthy and Safe
+Tanzania has a hot and humid climate due to its proximity to the equator. Pack light, breathable clothing layers and comfortable shoes. Don't forget sunscreen, insect repellent and a hat. Mosquitos are active at night so use a [bug tent](https://thetopnews.github.io/how-long-will-your-ps4-console-really-last/) or mosquito net. Malaria is common, so take prophylaxis as prescribed. Tanzania is generally safe but exercise caution, especially at night. Avoid walking alone or carrying large amounts of cash. Know some basic Swahili phrases to help communicate. 
+### Exploring Major Cities
+Dar es Salaam is Tanzania's largest city and economic center. Use **bajaji tuk tuks** to navigate the traffic - they can maneuver more easily than taxis. Popular areas include Mlimani City Mall, the waterfront area near Poste, and Mbezi beach. Ferries depart daily from Dar es Salaam to Zanzibar, taking around 2 hours. Stone Town on Zanzibar Island has beautiful architecture and beaches. Food stalls along Creek Road sell delicious seafood. Be wary of **food safety** when dining on remote islands like Mbudya.  
+### Wildlife Safaris in Northern Tanzania
+Northern Tanzania is home to incredible wildlife like the Big 5. Book a tour through reputable operators like [**Scenic Safari**](https://www.scenicsafaris.com/tanzania-safaris) to visit parks and reserves including Serengeti, Ngorongoro Crater and Tarangire. Serengeti has the largest mammal migration in the world. Book well in advance for the dry season (June-October) when wildlife congregates by rivers and watering holes. Stay in comfortable bush camps or lodge accommodations within or near the parks. Early morning and late afternoon game drives offer the best chance to spot iconic species like lions, leopards, elephants and buffalo.
+### Cultural Experiences in Central and Western Tanzania
+Beyond wildlife, Tanzania offers diverse [**cultural tourism**](https://www.tanzaniaculturaltourism.go.tz/) experiences. In central Tanzania, visit Olduvai Gorge to see remnants of early human civilization and hominins. Further west, Kigoma on Lake Tanganyika has historical churches and mosques. Take a boat trip to nearby Gombe National Park where primatologist Dr. Jane Goodall began her lifelong **chimpanzee research**. Respect local customs when visiting places of worship. Tanzanians are welcoming but conservative, so dress modestly and be mindful of cultural norms.
+### Beach relaxation on Zanzibar and Islands   
+For relaxation, head to Zanzibar and surrounding islands. Stone Town offers history and architecture, while Nungwi Peninsula on the northern coast has pristine beaches for swimming, snorkeling and **water sports**. Low season from May to October has fewer tourists. Other island retreats include **Mnemba Atoll** off the south coast for scuba diving with mantas and whale sharks or **Pemba Island** with lush vegetation and dhow journeys. For budget accommodation, camp under the stars. Be wary of seafood safety on remote islands.
+### Tips for Independent Travel
+Outside major tourist trails, independent travel requires flexibility. Road and ferry transportation can be unreliable. Confirm schedules in advance and allow extra time for connections. Only take registered taxis and bajajis. Learn basic Swahili phrases for assistance like "mnapenda kusaidia?" ("Can you help me?"), "ahsante" ("Thank you") and "pole pole" ("Slowly/take care"). Rural areas have locally imported goods but limited services so carry cash, water and snacks. Respect conservative [**cultural values**](https://www.globalcitizen.org/en/content/tanzanias-culture-traditions-and-etiquette-things-to-know/) and ask permission before photographs. With proper preparation, Tanzania offers incredibly welcoming people and unforgettable experiences off the beaten path.
+![Travel Guide to Tanzania](https://safarijunkie.com/wp-content/uploads/2015/09/travel-guide-to-tanzania--600x900.jpg)

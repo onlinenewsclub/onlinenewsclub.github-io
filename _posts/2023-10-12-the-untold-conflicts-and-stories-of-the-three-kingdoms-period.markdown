@@ -1,0 +1,29 @@
+---
+layout: post
+title: "The Untold Conflicts and Stories of the Three Kingdoms Period"
+date: 2023-10-12 06:25:49 +0000
+categories: "History"
+excerpt_image: https://www.worldhistory.org/uploads/images/6454.png?v=1645184704
+image: https://www.worldhistory.org/uploads/images/6454.png?v=1645184704
+---
+
+## Strategic Battles and Campaigns Beyond Central China
+### **Gongsun Du's conquests against Goguryeo and Wuhen tribes**
+Gongsun Du, the warlord who ruled Liaodong commandery in northeast China, had great success in expanding his territory through military campaigns against neighboring ethnic groups. Through ingenious battle strategies and cavalry maneuvers, he was able to defeat the powerful Korean kingdom of Goguryeo in multiple engagements. Gongsun Du also led expeditions deep into the rugged grasslands where he crushed the Wuhen tribe, cementing his control over a vast swath of the northern frontier. However, his military achievements are often overlooked due to his being a relatively minor figure in the civil conflicts within central China during the Three Kingdoms period.
+
+![](https://www.chinaeducenter.com/en/image/mapofthreekingdoms.jpg)
+### **Cao Cao's subjugation of the Xiongnu and Xianbei tribes**  
+To secure the safety of northern China's borders, Cao Cao, the founder of the Wei Kingdom, aggressively expanded his control over the Eurasian Steppe. He launched punitive raids against the murderous Xiongnu hordes that had long threatened the agricultural heartlands. Cao Cao also established garrisons across the Ordos Desert to subjugate the formidable Xianbei confederacy and curtail their raids. Through shrewd diplomacy, he turned many of the tribal chiefs into his vassals. Although these northern campaigns absorbed significant Wei military resources, they have received little attention compared to Cao Cao's struggles against rival warlords in central China.
+## Conflicts in Remote Frontier Territories
+### **Liu Yu's governance earns him respect from northern barbarians** 
+Liu Yu, the Governor of Yi Province in northern China, won great admiration from local barbarian tribes through his fair and accommodating administration. He incorporated their fighting styles and recognized their customs, fostering loyalty and integration. When civil war erupted, many barbarians volunteered to fight under Liu Yu's banner against the tyrannical Dong Zhuo. Tragically, his moderate and conciliatory approach was cut short by his assassination at the hands of the ambitious warlord Gongsun Zan. Liu Yu's accomplishments in the remote north, which helped stabilize the frontier for decades, are seldom recounted.
+### [Ma Chao strengthens ties with the Qiang highlanders](https://logurl.github.io/2024-01-07-u54c8-u8428-u514b-u65af-u5766-u7f8e-u4e3d-u7684-u81ea-u7136-u4e0e-u70ed-u60c5-u7684-u4eba-u6c11/)
+Renowned general Ma Chao earned high esteem while campaigning against the rebellious Qiang tribes along China's northwest border. Through exemplary conduct and military victories, he came to be revered as a demi-god among the Qiang, who began viewing the Han dynasty more favorably. Ma Chao convinced many Qiang braves to serve in his armies, bolstering his frontline forces. He also mediated in Qiang chieftain disputes, further cementing peace. Despite the significance of his diplomacy with the Qiang people, traditional histories have often overlooked Ma Chao's stabilizing efforts in the remote northwest mountains.
+## Southern Vietnam's Relative Isolation  
+### **Shi Xie governs peacefully in Jiaozhou commandery**
+The Jiaozhou commandery, covering much of modern northern Vietnam, remained relatively isolated from the conflicts embroiling central China during the Three Kingdoms era. Under the administration of Shi Xie and later officials appointed by Eastern Wu, Jiaozhou pursued an autonomy-focused strategy. Internal stability was prioritized over territorial expansion. As a result, the local mountain tribes posed little armed resistance, in contrast to eastern Wu's northern borders. However, Jiaozhou's isolationism and the unique circumstances of governing Vietnam have seldom been thoroughly examined by later historians.
+### **Indigenous groups maintain independence in mountainous borderlands** 
+The formidable crags and jungle-clad hills of Vietnam's Truong Son mountain range shielded many native groups from direct Han rule through the upheavals of the Three Kingdoms period. Fiercely independent hill tribes like the Shanyue retained their traditional ways of life and ancestral lands. Occasionally raiding the lowlands or challenging governors' authority, these peoples effectively maintained de facto self-rule in their remote highland strongholds. With sources rarely mentioning the ethnic diversity and frontier encounters in southernmost China's mountain marches, their history remains obscure.
+## Analysis of Historical Perceptions 
+When analyzing Three Kingdoms historical sources, several frontier conflicts and regional stories received relatively little attention. Northern wars against neighboring barbarians, remote northwest campaigns among Qiang tribesmen, and the isolated governance of southern Jiaozhou commandery found less coverage compared to events in central China. Geography, the biases of historian record keepers based in Luoyang and Chang'an, as well as propaganda from states seeking to legitimize rule all influenced how the history was framed and remembered. A more comprehensive picture requires reexamining neglected source materials and archaeological findings from every corner of the era's vast territorial expanse. Only then can a fuller, multidimensional understanding of the Three Kingdoms period be achieved.
+![The Untold Conflicts and Stories of the Three Kingdoms Period](https://www.worldhistory.org/uploads/images/6454.png?v=1645184704)

@@ -1,0 +1,26 @@
+---
+layout: post
+title: "The Origins of HIV/AIDS"
+date: 2023-11-30 22:21:15 +0000
+categories: "News"
+excerpt_image: http://www.news-medical.net/image.axd?picture=2012%2F10%2FAIDS+spread.jpg
+image: http://www.news-medical.net/image.axd?picture=2012%2F10%2FAIDS+spread.jpg
+---
+
+### Cross-Species Transmission 
+It is widely accepted that **HIV originated from cross-species transmission** of simian immunodeficiency viruses (SIVs) that infect African chimpanzees and gorillas to humans. This likely occurred as a result of [bushmeat hunting and butchering practices](https://thetopnews.github.io/how-blizzard-manages-world-of-warcraft-server-infrastructure/) in rural Africa. Around the early 1900s, a hunter may have been exposed to infected chimpanzee blood during the butchering process. If this initial infection was able to spread to other humans, it could have set the stage for the emergence of HIV.
+
+![](https://www.science.org/cms/10.1126/science.1123016/asset/cc3d728c-8d54-48cd-ad8e-ed565ca59a18/assets/graphic/313_462_f1.jpeg)
+### Spread Through Travel and Urbanization
+By the early 20th century, many parts of Africa had started experiencing increased urbanization as more extensive railroad systems connected rural areas to growing cities. This allowed for greater mobility of both people and goods. The person initially infected through contact with chimpanzee blood, or someone directly infected by that individual, may have later traveled to a larger urban center. In the city, HIV was able to spread more widely through sexual networks, particularly involving sex work. This helped enable HIV to establish itself in the human population.
+### Evolution of HIV into a Pandemic Strain
+Once introduced into humans, the virus evolved over the ensuing decades to become better adapted at infecting humans. This involved genetic mutations that enhanced HIV's ability to bind human immune cells and suppress the immune response. The ancestral simian strain was named SIV, while the mutated human pandemic form was designated as HIV to distinguish it. By the 1980s, HIV had evolved into variants like HIV-1 group M that drove the global pandemic still ongoing today.
+### HIV Transmission Patterns Differ Globally 
+While heterosexual transmission was the major driver of the HIV epidemic across sub-Saharan Africa, risk patterns varied internationally. In the U.S. in the early 1980s, the virus primarily spread among men who have sex with men. However, transmission rates soon escalated among heterosexual populations as well. Other regions like Asia, Latin America, and Eastern Europe saw varying mixes of sexual risk groups and intravenous drug use contributing to localized HIV epidemics. Understanding transmission dynamics remains important for focused prevention efforts in different populations and locations worldwide.
+### The Role of Meat Consumption and Bushmeat Hunting
+Studies by organizations like the World Health Organization have linked cross-species SIV transmission events to human practices around consumption of non-human primates. The hunting and butchering of chimpanzees, gorillas, and other bushmeat for food protein presented repeated opportunities for exposure of human blood and cuts to infected fluids. Pig and cattle farming has also been implicated in zoonotic disease emergence. While evidence is circumstantial, continued bushmeat practices in West and Central Africa pose ongoing risks for **new zoonotic disease spillovers** like COVID-19.
+### Global Collaboration to Address the Pandemic 
+Over the last four decades, the world has mobilized substantial scientific and public health resources towards controlling the HIV/AIDS crisis. Major research initiatives by entities such as the WHO, UNAIDS, and national institutes have driven advances in testing, prevention like pre-exposure prophylaxis (PrEP), and life-extending antiretroviral treatment (ART). International partnerships have also aimed to strengthen health systems and promote equitable access globally. However, **ending AIDS as a public health threat by 2030** will require continued innovation and community engagement efforts to reach those still vulnerable to or living with the virus. Strategic, well-funded global collaboration remains essential to eventually control this pandemic.
+### Separating Fact from Fiction 
+While cross-species transmission remains the scientifically supported explanation for HIV's origins, some have proposed implausible or disproven alternative theories over the years. One such notion tied HIV's emergence to unnatural sex acts between humans and primates like monkeys. However, close examination finds no evidence this ever occurred. Claims that processed "monkey soup" could spread SIV likewise lack credibility. Separating fact from harmful myths and misinformation is important for effective public health communication and policymaking regarding the pandemic's origins, spread, and ongoing management. Trusted sources like peer-reviewed literature and reports by expert organizations provide the soundest foundation for public understanding.
+![The Origins of HIV/AIDS](http://www.news-medical.net/image.axd?picture=2012%2F10%2FAIDS+spread.jpg)
