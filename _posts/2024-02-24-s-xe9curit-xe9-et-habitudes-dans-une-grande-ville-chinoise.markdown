@@ -1,0 +1,24 @@
+---
+layout: post
+title: "S\xe9curit\xe9 et habitudes dans une grande ville chinoise"
+date: 2024-02-24 14:02:09 +0000
+categories: "News"
+excerpt_image: https://image.cnbcfm.com/api/v1/image/106993044-1640217919793-gettyimages-1359638454-vcg111362133739.jpeg?v=1640217989
+image: https://image.cnbcfm.com/api/v1/image/106993044-1640217919793-gettyimages-1359638454-vcg111362133739.jpeg?v=1640217989
+---
+
+### Découvrir les petites habitudes de son appartement
+Mon appartement se situait au troisième étage d'un immeuble de cinq étages. En ouvrant la porte, un long couloir s'étendait sur une cinquantaine de mètres de chaque côté. L'ascenseur se trouvait à gauche et c'était mon point de chute habituel. Un jour, ma petite amie m'a demandé pourquoi je regardais toujours des deux côtés en entrant dans le couloir, comme si j'arrivais à un stop. Je n'avais jamais remarqué ce petit tic mais je me suis mis à observer mes petites habitudes. Vérifier des deux côtés du couloir pour prendre la **température des lieux** et m'assurer qu'il n'y avait personne rôdant à l'extérieur. Serrer mes clés entre mes doigts pendant que je marchais vers ma voiture. 
+
+![](https://static1.terrafemina.com/articles/7/33/30/07/@/480592-la-ville-foret-de-liuzhou-en-chine-dessi-opengraph_1200-2.jpg)
+### Première nuit à Pékin avec une assistante 
+Lors de ma première nuit en Chine, une assistante chinoise de mon entreprise m'a aidé à aller de l'aéroport jusqu'à mon appartement de fonction et à m'installer. Nous avons pris un taxi pendant quarante-cinq minutes jusqu'au quartier de bars de Sanlitun avant d'arriver dans les étroites [ruelles historiques](https://codeces.github.io/2024-01-08-avrupa-ya-motorla-seyahat/) près de Dongzhimen. En sortant du taxi, elle a vérifié l'adresse à nouveau car elle n'y était jamais allée auparavant mais elle connaissait vaguement le secteur. Nous avons commencé à marcher dans les rues étroites et sombres - je ne voyais qu'elle grâce à l'éclairage de son téléphone. De temps en temps, nous croisions des groupes d'hommes accoudés à fumer en nous regardant.  
+### Une ville sûre jour et nuit
+Depuis, je suis allé à Pékin, Guangzhou, Chengdu et d'autres villes chinoises. Partout, l'ambiance est la même. On ne ressent vraiment aucun risque de **criminalité violente** - c'est comme si les Chinois n'y pensaient même pas. Personne ne craint de se faire tuer sur le site Craigslist chinois ou de se faire harceler par son chauffeur de taxi. Certes, il y a un risque de pickpockets mais en faisant attention, le risque diminue fortement. Je prends mon téléphone en main dans le métro. On peut marcher dans les quartiers de bars accompagné de femmes sans avoir à subir de sifflements. La culture chinoise semble promouvoir l'égalité entre les genres.
+### Sentiments de sécurité dans les parcs la nuit
+À Shenzhen où je vis, il y a deux énormes parcs près de chez moi: le Central Park et le parc Lianhua. Je m'y promène ou y vais en balance électrique à deux heures ou plus du matin, chose impossible à San Francisco ou New York. La dernière fois que je me suis senti inquiet dans le parc, c'était à quatre heures du matin: j'ai entendu un bruit étrange derrière les arbres. En m'approchant, j'ai découvert un couple de personnes âgées faisant du tai-chi. Avouons que j'ai eu un peu honte d'avoir eu peur!
+### Partage de vélos électriques: un concept propre à la Chine
+Récemment, un nouveau service de mobilité a fait son apparition à Shenzhen: Mobike. Il existe également trois autres startups proposant le même concept. En quoi cela consiste-t-il? Un système de location de vélos mais avec une particularité: on abandonne simplement le vélo sur le bord de la route ou au milieu du parc, sans devoir le ramener à une station verrouillée. Les gens ne volent pas les vélos ou pas suffisamment pour mettre en péril le modèle économique. On n'imaginerait pas un tel service fonctionner ailleurs qu'en Chine!
+### La sécurité, une préoccupation infondée en Chine
+Pour résumer, le sentiment de sécurité est bien plus élevé en Chine qu'attendu. Les risques de criminalité y sont très faibles. Même la nuit, on peut profiter des parcs et rues sereinement. Les habitants adoptent naturellement des comportements respectueux. Le partage de vélos, impensable ailleurs, illustre la confiance réciproque. Si la sécurité figurait sur votre liste de craintes pour la Chine, il est temps de la réviser! Dans les grandes métropoles chinoises, on peut y vivre et évoluer en toute quiétude.
+![S\xe9curit\xe9 et habitudes dans une grande ville chinoise](https://image.cnbcfm.com/api/v1/image/106993044-1640217919793-gettyimages-1359638454-vcg111362133739.jpeg?v=1640217989)

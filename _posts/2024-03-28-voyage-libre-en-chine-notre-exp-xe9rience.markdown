@@ -1,0 +1,28 @@
+---
+layout: post
+title: "Voyage libre en Chine : notre exp\xe9rience"
+date: 2024-03-28 15:55:45 +0000
+categories: "News"
+excerpt_image: https://baikara.net/wp-content/uploads/2019/06/Cuiping-Hill-Yangshuo-Voyage-photo-en-Chine.jpg
+image: https://baikara.net/wp-content/uploads/2019/06/Cuiping-Hill-Yangshuo-Voyage-photo-en-Chine.jpg
+---
+
+### Découvrir la culture chinoise
+La Chine possède une culture riche et variée qu'il est facile de découvrir même sans parler chinois couramment. Les Chinois accordent beaucoup d'importance à l'hospitalité et n'hésiteront pas à vous aider si vous semblez perdu. **Les applications de traduction sont également utiles** pour communiquer de base. Lors de nos voyages, nous avons pu visiter de nombreux sites touristiques célèbres comme la Cité Interdite à Pékin ou le temple de Shaolin grâce à la gentillesse des locaux. Même dans les petites villes, il est possible de se débrouiller à l'aide de gestes. La culture chinoise offre de nombreuses surprises à découvrir au détour d'une rue !
+
+![](https://www.voyagetips.com/wp-content/uploads/2017/03/grande-muraille-de-chine.jpg)
+### Une destination sûre pour les voyageurs indépendants 
+Contrairement aux idées reçues, la Chine est une destination très sûre pour les voyageurs solitaires. Nous avons pu nous déplacer librement dans tout le pays sans guide grâce aux transports publics modernes. Le métro et le train à grande vitesse relient facilement les grandes villes comme Pékin, Shanghai ou Chengdu. Les applications mobiles comme WeChat rendent les paiements facile même sans connaître la langue. De plus, la police chinoise maintient un haut niveau de sécurité dans toutes les régions. Même dans les campagnes reculées, les habitants sont en général accueillants envers les étrangers de passage. 
+### Découvrir la gastronomie locale
+La cuisine chinoise regorge de saveurs uniques qu'il faut absolument goûter. À Chengdu, capitale du Sichuan, on ne peut pas manquer le célèbre [riz gluant au porc](https://jnewshub.github.io/2023-10-29-traveling-to-moscow-my-family-s-incredible-experience-exploring-the-city/). Les petits restaurants de rues proposent de délicieux plats à prix très abordables comme les rouleaux printemps ou les nouilles sautées. Même les grandes chaînes internationales comme KFC se sont adaptées aux goûts locaux ! Pour les végétariens, de nombreux menus sont disponibles dans les grandes villes. La street food chinoise offre une immersion totale dans la culture culinaire locale.
+### Séjourner dans des hôtels abordables 
+Il est possible de voyager de manière économique en Chine grâce à l'important réseau d'hébergements bon marché. Les auberges de jeunesse ou "hostels" proposent des chambres partagées à partir de 15 euros la nuit même dans les grandes métropoles. L'hôtel budget reste la solution la plus sûre et confortable pour les voyageurs individuels. Les applications mobiles permettent de réserver et payer facilement même sans parler chinois. Certains établissements comme Zhengzhou GreenTree offrent une qualité élevée pour un prix très raisonnable. 
+### Profiter des sites naturels uniques
+En dehors des grandes villes, la Chine recèle de paysages époustouflants. La région du Sichuan au sud-ouest abrite notamment le parc national du mont Emei et la réserve naturelle du mont Siguniang où l'on peut observer des pandas géants dans leur habitat naturel. Un must est le parc forestier de Zhangjiajie dans la province du Hunan, rendu célèbre par le film "Avatar". On y découvre d'incroyables pics et arches rocheuses aux formes sculptées par l'érosion. Ces sites naturels exceptionnels méritent à eux seuls un voyage en Chine.
+### Apprécier les traditions ancestrales
+Malgré sa modernisation galopante, la Chine garde la mémoire de ses coutumes millénaires. Dans la petite ville de Fenghuang, aux maison-pagodes de bois de la dynastie Ming, on se plonge dans l'atmosphère traditionnelle du pays. La cérémonie du thé est un autre rituel chinois qui se pratique depuis des siècles dans des lieux pittoresques comme le Jardin du Lotus à Suzhou. L'opéra de Pékin avec ses costumes somptueux et son maquillage exagéré est une véritable institution nationale. Ces expressions culturelles uniques permettent de mieux comprendre l'âme du peuple chinois.
+### Profiter des grandes métropoles modernes
+Les immenses centres urbains chinois surprennent par leur modernité et leur dynamisme économique. À Shanghai, symbole de la nouvelle Chine, les gratte-ciels côtoient les anciennes concessions et le Bund, célèbre front de mer. La population hyper-connectée se déplace rapidement grâce à un métro ultra-développé. Pékin mélange habilement les vestiges impériaux et l'architecture futuriste. Les centres commerciaux géants regorgent des dernières innovations high-tech. Même les plus petites villes s'équipent à grande vitesse avec des parcs, places et infrastructures de qualité.
+### Profiter de l'hospitalité et la gentillesse des Chinois
+Malgré des différences culturelles importantes, nous avons toujours été accueillis chaleureusement par les Chinois. Leur politesse et leur sens de l'entraide sont remarquables. On est souvent invité à partager un repas ou simplement discuter autour d'un thé. **Les échanges interculturels** sont une belle manière de découvrir la mentalité locale et de nouer des liens durables. Même sans parler la langue, la communication par gestes et sourires est facile. Les Chinois apprécient les étrangers qui font l'effort de s'intéresser à leur mode de vie. Voyager en Chine est avant tout une aventure humaine enrichissante.
+![Voyage libre en Chine : notre exp\xe9rience](https://baikara.net/wp-content/uploads/2019/06/Cuiping-Hill-Yangshuo-Voyage-photo-en-Chine.jpg)

@@ -1,0 +1,34 @@
+title: Online News Club
+email: admin_onlinenewsclub@gmail.com
+author: onlinenewsclub
+copyright: "Unpublished Work (cleft) 2023-{currentYear} {author}"
+description: >- # this means to ignore newlines until "baseurl:"
+  News and Ideas.
+# baseurl: "/web" # the subpath of your site, e.g. /blog
+url: "https://onlinenewsclub.github.io" # the base hostname & protocol for your site, e.g. https://example.com
+favicon: "" # the favicon for your site
+permalink: /:name/
+yat:
+  date_format: "%b %d, %Y"
+sitemap: true
+lang: "fr"  # default lang is en
+defaults:
+  home:
+    heading: "onlinenewsclub"
+    subheading: "Latest News"
+    # banner: "Your image url"
+excerpt:
+  default_image: /assets/images/default-image.jpeg  # Default image when the image style is not none
+  image_style: z          # Image layout style (It's value could be none, left, right, top, z, z-reverse)
+  image_width: 38.2%      # Image default width
+  image_height: 160px     # Image default height
+  text_size: 350          # Words default size
+markdown: kramdown
+kramdown:
+  input: GFM
+plugins:
+  - jekyll-feed
+  - jekyll-seo-tag
+  - jekyll-sitemap
+  - jekyll-paginate
+  - jekyll-spaceship

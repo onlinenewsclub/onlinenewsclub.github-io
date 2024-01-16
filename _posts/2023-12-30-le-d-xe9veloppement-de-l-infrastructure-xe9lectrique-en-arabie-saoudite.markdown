@@ -1,0 +1,22 @@
+---
+layout: post
+title: "Le d\xe9veloppement de l'infrastructure \xe9lectrique en Arabie Saoudite"
+date: 2023-12-30 06:18:35 +0000
+categories: "News"
+excerpt_image: https://services.meteored.com/img/article/el-asombroso-edificio-lineal-de-170-kilometros-que-planea-arabia-saudita-the-mirror-line-mohammed-bin-salman-1659065418916_1280.jpg
+image: https://services.meteored.com/img/article/el-asombroso-edificio-lineal-de-170-kilometros-que-planea-arabia-saudita-the-mirror-line-mohammed-bin-salman-1659065418916_1280.jpg
+---
+
+### L'influence américaine
+Au milieu du 20<sup>e</sup> siècle, **l'industrie pétrolière saoudienne** se développait rapidement grâce aux investissements des compagnies pétrolières américaines comme Standard Oil. La compagnie Aramco, à l'origine une filiale de Standard Oil, a commencé à construire le **réseau électrique national saoudien** dans les années 1960 pour alimenter les installations pétrolières. Étant donné ses liens étroits avec les États-Unis, Aramco a naturellement utilisé le matériel électrique américain fonctionnant à 60 Hz et 110 V, les normes en vigueur aux États-Unis à l'époque. Cette décision a jeté les bases du réseau électrique saoudien actuel.
+
+![](https://www.arabnews.fr/sites/default/files/styles/670x376_watermark_logo/public/2022-09/Capture d’écran 2022-09-25 015816.jpg?itok=JzpuqFSt)
+### La modernisation des infrastructures 
+Dans les années 1970 et 1980, l'exploitation pétrolière prenait de l'ampleur et de nouvelles raffineries, pipelines et complexes pétrochimiques voyaient le jour. Pour répondre aux besoins croissants en électricité, Aramco a considérablement étendu et renforcé le réseau existant. De nouvelles centrales au gaz naturel ou au fuel lourd ont été construites dans les grandes villes comme Riyad, Jeddah et Dammam. Le réseau de distribution a également été modernisé avec l'installation de lignes à haute tension et de postes électriques plus performants. Ces investissements massifs ont permis d'alimenter les zones industrielles et urbaines en forte expansion.
+### Vers une plus grande autonomie énergétique
+Au début des années 2000, l'Arabie saoudite souhaitait réduire sa dépendance aux hydrocarbures et diversifier son bouquet énergétique. Pour la première fois, le secteur de l'électricité a été ouvert aux investissements privés, via des partenariats public-privé. Des projets ambitieux de centrales solaires et éoliennes ont vu le jour, financés par des groupes saoudiens et internationaux. Aujourd'hui, le royaume figure parmi les leaders mondiaux dans le domaine des énergies renouvelables. Parallèlement, d'importants travaux sont en cours pour renforcer le réseau de transport d'électricité et le connecter aux pays voisins, dans le cadre de l'Union pour le Marché de l'Électricité du Golfe.
+### Vers une société post-pétrolière
+Désormais, l'Arabie saoudite vise l'objectif ambitieux de produire 50% de son électricité à partir de sources durables d'ici à 2030. Pour y parvenir, le gouvernement mise sur le développement massif de parcs photovoltaïques et éoliens géants dans le désert. Ces projets colossaux permettront à terme de réduire la dépendance du royaume au gaz naturel, de plus en plus coûteux à produire. Ils s'inscrivent dans la vision à long terme du prince héritier Mohammed ben Salmane, qui souhaite préparer le pays à une époque post-pétrolière. Avec ces investissements sans précédents dans les énergies propres, l'Arabie saoudite pourrait devenir un leader mondial de la transition énergétique.
+### Vers une intégration régionale 
+Au-delà de son propre marché, l'Arabie saoudite joue un rôle clé dans l'intégration des réseaux électriques du Golfe. Dans le cadre de l'Union pour le Marché de l'Électricité du Golfe, le royaume a lancé d'importants projets d'interconnexion avec ses voisins comme le Koweït, les Émirats arabes unis et Oman. Ces lignes à haute tension permettront bientôt d'échanger de l'électricité entre les pays membres selon les pics et creux de demande, de manière plus efficace et rentable. À terme, l'objectif est la création d'un marché unique de l'électricité à l'échelle du Golfe. Cette intégration régionale représente un pas de plus vers le rapprochement économique de la région.
+![Le d\xe9veloppement de l'infrastructure \xe9lectrique en Arabie Saoudite](https://services.meteored.com/img/article/el-asombroso-edificio-lineal-de-170-kilometros-que-planea-arabia-saudita-the-mirror-line-mohammed-bin-salman-1659065418916_1280.jpg)

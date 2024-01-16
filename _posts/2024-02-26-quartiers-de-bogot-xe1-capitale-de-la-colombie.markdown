@@ -1,0 +1,30 @@
+---
+layout: post
+title: "Quartiers de Bogot\xe1, capitale de la Colombie"
+date: 2024-02-26 06:57:35 +0000
+categories: "News"
+excerpt_image: https://thumbs.dreamstime.com/z/la-plaza-bolivar-de-place-principale-de-la-capitale-bogot-du-s-de-la-colombie-91083307.jpg
+image: https://thumbs.dreamstime.com/z/la-plaza-bolivar-de-place-principale-de-la-capitale-bogot-du-s-de-la-colombie-91083307.jpg
+---
+
+### Les grandes zones de la ville
+Bogotá est divisée en plusieurs grandes zones ayant chacune leurs propres caractéristiques. La plus importante est la [localidad de Santa Fe](https://northtimes.github.io/2024-01-03-u30a4-u30f3-u30b0-u30e9-u30f3-u30c9-u3068-u30d5-u30e9-u30f3-u30b9-u3068-u306e-u9593-u306e-u666f-u8272/), qui englobe différents quartiers du centre-ville comme le quartier des affaires, des zones résidentielles, des universités prestigieuses telles que l'**Université des Andes** et l'**Université Jorge Tadeo Lozano**, ainsi que de nombreux parcs, restaurants et lieux de vie animés. Cette zone regroupe le cœur historique de la ville dans la **localidad de la Candelaria**, qui abrite les principales attractions touristiques. 
+La vie quotidienne y est très animée, surtout pendant la journée. Bien que la prudence reste de mise comme dans toute grande métropole, la sécurité n'est généralement pas un problème tant qu'on évite les quartiers à problèmes et que l'on reste vigilant. De nombreuses entreprises de sécurité privée patrouillent, payées par les associations de quartier, les banques et commerces. On peut donc se promener librement dans la plupart des rues.
+
+![](https://wallpapercave.com/wp/wp2093020.jpg)
+### Le quartier pittoresque de La Merced
+Un des quartiers les plus typiques de Bogotá est **Barrio de La Merced**. Situé dans la localidad de Santa Fe, il s'agit d'un lieu chargé d'histoire aux rues pavées et aux maisons coloniales colorées. On y trouve de nombreuses églises ainsi que des marchés populaires et des restaurants proposant des spécialités culinaires colombiennes. C'est un endroit idéal pour se imprégner de l'atmosphère traditionnelle de la ville, tout en profitant d'une vie de quartier animée. 
+La place principale El Parque de Los Periodistas est le cœur névralgique du quartier. On y croise souvent des musiciens de rue et des artistes de styles variés. Les soirées du jeudi et du vendredi rassemblent de nombreux habitants autour de buvettes en plein air. LaMerced est sans aucun doute l'un des quartiers les plus pittoresques et authentiques de Bogotá.
+### Le quartier dangereux de Santa Fe 
+À ne pas confondre avec la localidad du même nom, le **barrio Santa Fe** se situe quant à lui dans un autre arrondissement de la ville. Contrairement à ses environs animés, il s'agit d'un quartier délabré dont il est fortement déconseillé de s'aventurer, sauf à chercher des ennuis. La prostitution bon marché et le trafic de drogue y règnent en maîtres. 
+Même si la criminalité a diminué ces dernières années dans de nombreux secteurs de Bogotá, le barrio Santa Fe reste l'un des quartiers les plus dangereux. Il vaut mieux l'éviter, surtout le soir et la nuit, à moins d'être accompagné par un habitué des lieux. Mieux vaut profiter en toute sécurité des autres zones touristiques et animées que compte la capitale colombienne.
+### La vie nocturne animée du centre-ville
+Le centre de Bogotá offre une grande variété de lieux pour animer les soirées. Dans la localidad de Santa Fe, on trouve d'innombrables bars, restaurants et discothèques le long des avenues principales comme la **Calle 116** ou l'avenue **Jimenez**. Les établissements sont nombreux et la ambiance festive jusque tard dans la nuit.
+Le quartier de la **Calle 85** est réputé pour ses nombreux karaokés et lieux de sortie branchés. On y croise souvent des étudiants des universités voisines. Un peu plus au nord, le secteur du **Parc 93** propose une offre plus calme de bars à cocktails et restaurants au cadre raffiné. Il n'est pas rare non plus de tomber sur des concerts gratuits ou des événements culturels dans certains parcs du centre. La vie nocturne bogotaine regorge de charme et de divertissements pour tous les goûts.
+### Le quartier branché de Chapinero 
+À l'ouest du centre, le quartier huppé de **Chapinero** constitue l'un des hauts lieux de la vie culturelle et festive de Bogotá. Au-delà de ses gigantesques centres commerciaux, on y trouve de nombreuses galeries d'art alternatif, librairies indépendantes et cafés avec terrasses. Les rues du quartier, notamment l'avenue principal **Carrera 7**, sont animées à toute heure par les passants.
+Les soirées du vendredi et du samedi rassemblent les hipsters bogotains dans les bars à vin et restaurants gastro de la zone. On y accède facilement grâce au métro, ce qui en fait une destination de choix pour les sorties entre amis. Bien que vivant aussi la nuit, le ton y reste plus posé qu'en centre-ville, dans une ambiance branchée et cosmopolite chère aux habitants du quartier. Chapinero offre une expérience authentique de la culture citadine colombienne.
+### Le parc national de la culture et de la récréation Simón Bolívar
+Les vastes espaces verts manquent parfois dans une mégalopole comme Bogotá. Heureusement, le magnifique parc national Simón Bolívar, situé dans le sud-est de la ville, offre aux habitants un écrin de verdure de plus de 370 hectares. On y trouve des aires de pique-nique, des terrains de sport, des plateaux d'observation mais aussi des espaces culturels comme le musée d'Art moderne et le planétarium.   
+Les week-ends et jours fériés, des milliers de familles s'y retrouvent pour profiter des pelouses, faire du vélo ou assister à des représentations artistiques. Les amoureux de nature apprécient également les sentiers de randonnée ombragés qui serpentent entre les zones boisées. Dans ce poumon vert, un véritable havre de paix au cœur de la capitale, il fait bon se détendre à l'abri de l'agitation citadine.
+![Quartiers de Bogot\xe1, capitale de la Colombie](https://thumbs.dreamstime.com/z/la-plaza-bolivar-de-place-principale-de-la-capitale-bogot-du-s-de-la-colombie-91083307.jpg)

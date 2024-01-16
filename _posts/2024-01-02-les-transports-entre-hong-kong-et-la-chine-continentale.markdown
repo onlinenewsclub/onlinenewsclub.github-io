@@ -1,0 +1,29 @@
+---
+layout: post
+title: "Les transports entre Hong Kong et la Chine continentale"
+date: 2024-01-02 04:01:39 +0000
+categories: "News"
+excerpt_image: https://www.h24info.ma/wp-content/uploads/2018/10/Pont-Chine.jpg
+image: https://www.h24info.ma/wp-content/uploads/2018/10/Pont-Chine.jpg
+---
+
+### Les ferrys et les bus 
+Auparavant, le terminal de ferry reliant Hong Kong et la Chine continentale à Kowloon et le terminal de ferry reliant Hong Kong à Macao sur l'île de Hong Kong proposaient une demi-douzaine de trajets chacun vers Zhuhai et vice versa. On ne sait pas vraiment ce qu'ils font actuellement en raison du Covid-19. L'aéroport de Hong Kong proposait également un ou deux trajets. 
+Avant la pandémie de Covid-19, lors de l'ouverture du **pont Hong Kong-Zhuhai-Macao**, des bus desservaient Macao et Zhuhai. Cette option a désormais disparu, Macao, principale destination de cette ligne, étant fermée aux visiteurs.
+
+![](https://img.aws.la-croix.com/2018/10/23/1300977927/Zhuhai-Hong-Kong-Macao_1_1399_1063.jpg)
+### Le pont Hong Kong-Zhuhai-Macao
+Aujourd'hui, le pont Hong Kong-Zhuhai-Macao, ouvert en 2018, permet de se rendre en Chine continentale de manière plus rapide et plus pratique. Long de 55 kilomètres, il relie Hong Kong, Macao et neuf villes de la province chinoise du Guangdong, dont Zhuhai. Les automobilistes peuvent ainsi traverser la frontière sans avoir à prendre le ferry. Des bus publics et des services de taxisLow to transit link also connecté.connectent également les trois villes. 
+### Les contrôles de visa à la frontière
+Pour emprunter le pont et franchir la frontière terrestre, il est nécessaire de détenir un passeport valide et un visa chinois si nécessaire. À la frontière, des contrôles d'identité et de visa sont effectués. Les ressortissants de nombreux pays, dont la France, bénéficient d'une exemption de visa pour Hong Kong et peuvent se rendre à Macao sans visa. Un visa est en revanche obligatoire pour entrer en Chine continentale.
+### La situation actuelle avec le Covid-19
+Avec la pandémie de Covid-19, l'accessibilité entre Hong Kong et la Chine continentale s'est considérablement réduite. Macao étant fermé aux visiteurs, les liaisons par ferry ou bus ne sont plus opérationnelles. Le trafic sur le pont Hong Kong-Zhuhai-Macao a également fortement diminué. Depuis le début de la crise, les frontières entre Hong Kong et la Chine continentale sont de fait quasi fermées, seuls quelques résidents pouvant franchir la frontière avec une quarantaine obligatoire à l'arrivée. La reprise des échanges devra attendre une amélioration significative de la situation sanitaire.
+### Les perspectives de reprise après la pandémie 
+Avec la vaccination massive de la population, la situation sanitaire liée à la pandémie de Covid-19 devrait s'améliorer de façon durable courant 2022. Les échanges entre Hong Kong et la Chine continentale, bridés depuis 2020, pourraient alors connaître un fort rebond. **Le pont Hong Kong-Zhuhai-Macao**, qui n'a pas encore atteint son plein potentiel, jouera un rôle clé dans cette reprise. Il facilitera la circulation des personnes et des biens entre les trois villes. Les vols internationaux et liaisons maritimes devraient également retrouver leur rythme de croisière d'avant-crise. Les navettes ferroviaires à grande vitesse, en projet, constitueront un nouveau moyen de transport pratique et rapide.
+### Le statut particulier de Hong Kong au sein de la Chine
+Bien que faisant partie intégrante de la Chine, Hong Kong bénéficie d'un statut particulier de région administrative spéciale qui lui confère une large autonomie. Elle dispose de ses propres institutions politiques, d'un système judiciaire indépendant et de la liberté de créer ses lois, notamment en matière fiscale et commerciale. Hong Kong conserve donc un fonctionnement différent de celui des autres provinces chinoises. Ce statut « un pays, deux systèmes » reflète l'histoire coloniale de Hong Kong et lui permet de maintenir pendant encore quelques décennies des libertés qui n'existent pas en Chine continentale.
+### L'intégration progressive de Hong Kong à l'économie chinoise
+Même si Hong Kong bénéficie d'institutions distinctes, son intégration économique à la Chine continentale ne fait que se renforcer. Située idéalement à la porte de l'énorme marché chinois, Hong Kong joue un rôle crucial de plateforme financière et commerciale pour les échanges avec l'étranger. Grâce à sa situation géographique privilégiée le long de l'estuaire de la Rivière des Perles, Hong Kong constitue la principale porte d'entrée des investissements étrangers en Chine. Elle est également un centre d'innovation de premier plan. Son rattachement à la Chine ne fera que favoriser à long terme le développement économique des deux régions.
+### Le ferry de Hong Kong à Macao, une institution touristique
+Depuis des décennies, prendre le ferry entre Hong Kong et Macao est une sorte de rituel incontournable pour les touristes comme pour les habitants. Même si le pont permet désormais de relier les deux villes plus rapidement, le ferry garde une forte dimension nostalgique et ludique. Les adeptes apprécient de profiter de la traversée, d'une durée d'environ une heure, pour admirer les vues panoramiques sur les côtes, les montagnes et les villes des deux côtés. Les enfants s'amusent dans les zones de jeux tandis que les passagers découvrent la gastronomie locale à bord. Le ferry est véritablement devenu une institution du tourisme dans la région administrative spéciale de Hong Kong.
+![Les transports entre Hong Kong et la Chine continentale](https://www.h24info.ma/wp-content/uploads/2018/10/Pont-Chine.jpg)

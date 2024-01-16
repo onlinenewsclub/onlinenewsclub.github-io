@@ -1,0 +1,31 @@
+---
+layout: post
+title: "The Dangers of Playing with Electricity"
+date: 2023-11-23 02:56:40 +0000
+categories: "News"
+excerpt_image: https://i.pinimg.com/originals/0d/b4/0f/0db40f3f573ab3940c7314227741a326.jpg
+image: https://i.pinimg.com/originals/0d/b4/0f/0db40f3f573ab3940c7314227741a326.jpg
+---
+
+## **The Shocking Experience of A Six-Year-Old Boy**
+When I was just six years old, I had the curious idea to stick a metal hair pin into an electrical socket in our bathroom. Little did I know the potential dangers involved. My mother was in the next room when the lights in her walk-in closet began flickering on and off. She rushed into the bathroom to find me holding the pin, with [burned hands](https://ustoday.github.io/2024-01-05-guyane-terre-de-diverses-exp-xe9riences-naturelles/) and tears streaming down my face. 
+She called for emergency services right away to ensure I had not suffered any **neurological damage** from the electric shock. Both the ER and urgent care doctors had my mother perform basic tests to check my coordination, vision and other functions. Thankfully, other than the visible burns on my **palms and fingertips**, I seemed unharmed. It was a terrifying experience for both my mother and myself, one that has stuck with me into adulthood as a powerful lesson in electricity safety.
+### **The Frightening Effects of Electricity**
+My mother recalls the screams I emitted were nothing short of **blood-curdling**. The pain from an electric shock, especially for a small child, must be excruciating. Sticking metal directly into an energized socket allows all the electrical current to pass through the body in a split second. For adults, the consequences can range from a painful jolt to full cardiac arrest. Had I been holding both prongs of the hair pin, the results may have been far worse. 
+Electricity moves so fast that it can stop the heart or cause severe internal damage before the body even realizes what is happening. My mother's **closet lights flickering** were the only indication something was wrong until she found me crying in the bathroom. The frightening speed and power behind electricity is something not to be underestimated or taken lightly.
+
+![](http://www.vancouverelectricianblog.com/wp-content/uploads/2014/04/Electrical-Safety-848x480-768x435.jpg)
+### **Understanding Electrical Safety** 
+Growing up, I was always warned by my parents to avoid putting anything metal near outlets or dangling wires. It wasn't until I was older that I understood **why** those rules existed. Electricity follows the path of least resistance to the ground. When a live wire contacts something conducting like metal, all the current rushes through that object, often with disastrous effects. 
+Common household items like forks or pins make excellent conductors that can easily bridge the gap between the two prongs in an outlet. The electrical pressure, or voltage, pushes electrons through whatever connection is made at lightning speed. Severe shock, burns and even death are real risks of such reckless behavior. Respecting these dangers and learning basic electrical **principles** is crucial for safety in and out of the home.
+### **High-Voltage Accidents Have Deadly Consequences**
+Incidents involving higher voltages carry much graver risks. In places with 240-volt power systems compared to North America's 120 volts, the consequences of shocks and shorts can be catastrophic. Any accidental contact risks receiving double the electrical pressure and current flow through the body.
+From what I've witnessed of electrical accidents overseas, high voltage does not just cause pain - it brings instant obliteration. Equipment failures inside computer power supplies left burn marks everywhere and the acrid smell of scorched internals. A dropped metal tool vaporized in a flash at a telecom site, spraying molten drops that left pockmarks on all surfaces. No human could hope to survive direct exposure to voltages that can melt steel in an eyeblink. 
+The amount of power flowing through residential and industrial wiring should always command serious respect. No experimentation is worth endangering oneself or others over simple curiosity. Lives have been lost to assuming electricity will behave as one expects - it moves and reacts in terrifying and unpredictable ways.
+### **Taking No Chances With Electrical Play**    
+As an adult trained in electrical work, I understand now how lucky I was as a child. The impulse of sticking that hair pin into the socket could so easily have ended my life before it really began. Even a brief shock can disrupt heart rhythms or cause respiratory arrest, especially for small children. Had I been holding the two prongs to bridge the gap, death would have been all but guaranteed. 
+My youthful negligence was a close call, one that rightfully earned me a serious fright and scolding. No matter one's age, there is no justification for intentionally bridging high-voltage circuits or putzing around with exposed live wires. Not only is it illegal, the risks are simply too high. A single miscalculation can lead to tragedy in an instant. When it comes to electricity, willful ignorance or curiosity are never worth the potential cost.
+### **A Solemn Warning Against Electrical Tampering**
+Over the decades, I have witnessed firsthand how quickly things can go wrong around electricity through accidents, natural disasters and equipment failures. The power and fury contained within even small amounts of voltage is nothing to disrespect. Too many lives have been lost, homes and communities impacted due to improper handling or plain disregarding of the dangers. 
+My hope is that telling my story may help prevent even one child or adult from harming themselves exploring electrical outlets out of foolish bravado or misinformation. The only safe interactions are those handled by trained professionals with the proper protection and safeguards. Forever have I been changed by that instinctual act as a boy, now grown into a lifelong advocate for electrical **safety standards**. Let my survival serve as a sobering lesson - not to be taken for granted.
+![The Dangers of Playing with Electricity](https://i.pinimg.com/originals/0d/b4/0f/0db40f3f573ab3940c7314227741a326.jpg)

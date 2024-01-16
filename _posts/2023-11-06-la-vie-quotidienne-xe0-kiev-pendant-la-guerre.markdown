@@ -1,0 +1,26 @@
+---
+layout: post
+title: "La vie quotidienne \xe0 Kiev pendant la guerre"
+date: 2023-11-06 16:02:11 +0000
+categories: "News"
+excerpt_image: https://webdoc.france24.com/images-kiev-guerre-ukraine/images/08.jpg
+image: https://webdoc.france24.com/images-kiev-guerre-ukraine/images/08.jpg
+---
+
+### Continuer comme à l'habitude
+Malgré les attaques de missiles russes sporadiques sur la ville, la vie quotidienne se poursuit pour la plupart des habitants de Kiev. Bien que les sirènes retentissent de temps en temps pour avertir la population de se rendre dans les abris, la plupart des gens ne modifient pas leur emploi du temps et continuent à vaquer à leurs occupations normales.  Certains profitent même de la diminution dramatique du [trafic routier intense](https://store.fi.io.vn/collection/puppy) pour se rendre plus rapidement au travail ou à l'école. La criminalité de rue reste **extrêmement faible** en cette période trouble, et les bagarres entre ivrognes sont devenues rares avec les restrictions sur la vente d'alcool.    
+
+![](https://cdn-hub.ina.fr/notice/690x517/2ee/LLC9012111948.jpeg)
+### S'adapter aux coupures de courant
+Cependant, les attaques récentes sur les infrastructures énergétiques compliquent quelque peu le quotidien. Les bombardements russes sur une centrale électrique plongent Kiev dans le noir pendant environ 24 heures. Sans électricité, pas d'eau courante non plus. Heureusement, grâce à une solidarité sans faille, les habitants s'organisent. De plus en plus de générateurs font leur apparition devant les petits commerces. Certains ont également investi dans de petits réchauds au gaz de fortune ou dans de grandes batteries portables pour pallier les coupures. Cette adaptation rapide démontre la ténacité et la détermination des habitants de Kiev.
+### Soutenir les efforts de guerre 
+Pendant ce temps, les opérations militaires se poursuivent sans encombre grâce aux générateurs dont disposent l'armée. Les communications par satellite permettent également de coordonner les actions des troupes quelles que soient les conditions. Les organisations civiles qui apportent leur sout logistique aux forces armées Ukraineiennes continuent également leur travail indispensable. Malgré les difficultés, un nouvel envoi d'équipement en provenance de Pologne doit arriver dans la nuit. Cette coopération internationale renforce la résilience des Ukrainiens. Loi de s'affaiblir, leur moral ne fait que croître face aux attaques de plus en plus désespérées de la Russie.
+### Prendre soin des plus vulnérables 
+Bien que la population civile soit directement visée, les hôpitaux continuent à fonctionner tant bien que mal grâce à des générateurs de secours. Le personnel médical fait preuve d'un dévouement exemplaire en cette période difficile. Dans les quartiers les plus modestes comme Obolon au nord de la ville, des initiatives solidaires ont émergé pour ravitailler les personnes âgées et les familles nombreuses qui peinent à surmonter les difficultés causées par les coupures d'électricité répétées. Des distributions organisées de nourriture, d'eau et de produits de première nécessaire permettent à ces populations vulnérables de tenir bon. 
+### Se préparer au pire
+Malgré ces efforts, un climat d'incertitude demeure. Les autorités craignent de nouvelles attaques russes d'envergure pour le 24 août, jour de la fête nationale de l'indépendance ukrainienne. Des batteries anti-aériennes ont été déployées aux abords de la ville et la population a reçu la consigne de rester proche des abris. Si les bombardements redoublent d'intensité, la pénurie en carburant, nourriture et médicaments pourrait rapidement devenir préoccupante. Face à ce scénario catastrophe hypothétique, les habitants font preuve d'une résilience et d'une solidarité remarquables qui devraient leur permettre de tenir jusqu'à la fin de la guerre.
+### Un exode massif limité
+Malgré les risques, l'exode massif de la population n'a pour l'instant pas eu lieu. Certes, l'attaque du 24 février a poussé de nombreux habitants à fuir la capitale dans les premiers jours du conflit. Cependant, la majorité est finalement revenue ou n'est pas allée bien loin, se réfugiant principalement dans l'ouest du pays. Seuls les plus fragiles comme les personnes âgées ou les familles avec de très jeunes enfants ont pour la plupart quitté définitivement la ville. Le sens du devoir et la volonté de résister des Kievien·nes l'emportent pour le moment sur la peur des bombardements.
+### Une vie qui continue
+En somme, malgré les difficultés et les risques, la vie continue tant bien que mal à Kiev. Certes, l'ambiance y est désormais empreinte d'une tension perceptible et le quotidien est rythmé par les sirènes. Néanmoins, la détermination et la solidarité des habitants leur permettent de surmonter les épreuves avec courage et résilience. Loin de se laisser abattre, ils font front ensemble et entendent bien résister jusqu'à la libération complète de leur territoire.
+![La vie quotidienne \xe0 Kiev pendant la guerre](https://webdoc.france24.com/images-kiev-guerre-ukraine/images/08.jpg)

@@ -1,0 +1,26 @@
+---
+layout: post
+title: "La puissance des Mongols et leur utilisation de la machinerie de si\xe8ge"
+date: 2024-03-07 05:11:56 +0000
+categories: "History"
+excerpt_image: https://i.pinimg.com/originals/02/ad/b4/02adb4012db9a74cfce3a54cd88fe9d0.jpg
+image: https://i.pinimg.com/originals/02/ad/b4/02adb4012db9a74cfce3a54cd88fe9d0.jpg
+---
+
+### Les armes des Mongols
+Les Mongols étaient d'excellents cavaliers et archers redoutables. Ils pouvaient tirer des flèches d'une longueur allant jusqu'à 40 pouces depuis leur selle au galop ou à pied. L'arc standard de l'empereur et de sa garde personnelle atteignait une force de tir de 133 livres, **une puissance extraordinaire pour l'époque**. Même les arcs chinois les plus puissants pouvaient effectuer le même travail qu'un arc anglais nécessitant 150 livres de force, ce qui démontre la maîtrise des Mongols dans l'art de l'archerie. 
+
+![](https://www.worldhistory.org/img/c/p/1200x627/11223.jpg)
+### La bataille décisive de Xiangyang
+La bataille de Xiangyang, dans la province du Hubei en Chine, fut un affrontement décisif entre la dynastie Song et les Mongols de la dynastie Yuan, qui se solda par la victoire des Mongols. Bien que les Chinois aient inventé le **trébuchet à traction**, plus maniable car fonctionnant à la force humaine, les Mongols disposaient d'environ 20 trébuchets à contrepoids bien plus puissants. Construits selon les instructions d'ingénieurs syriens, ces énormes machines de siège permirent aux Mongols de surpasser les Chinois en nombre et en puissance de feu lors du siège de Xiangyang.
+### L'invention révolutionnaire du trébuchet
+Après avoir surpassé la capacité de projection des catapultes avec des projectiles pesant jusqu'à une tonne, le trébuchet est devenu l'arme de siège absolument dévastatrice du Moyen-Âge. Inventé en Chine entre les 5ème et 3ème siècles avant J.C, il s'est répandu en Méditerranée dès le 6ème siècle de notre ère. Contrairement aux catapultes fonctionnant à l'élasticité, le trébuchet exploite habilement la force de gravité grâce à un contrepoids qui, selon les reconstitutions, pourrait atteindre plusieurs dizaines de tonnes. Cette énergie potentielle, libérée de manière magistrale, **projetait des projectiles d'un poids considérable à plus de 300 mètres**.
+### L'amélioration continue du trébuchet
+Au fil du temps, les ingénieurs n'ont cessé d'améliorer le rendement et la portée du trébuchet. L'introduction d'un bras oscillant permettant de faire varier l'angle et la distance du contrepoids a considérablement augmenté l'énergie transmise au projectile. La forme en navette du contrepoids, déjà observée sur les machines médiévales, concentrait davantage la masse à son extrémité. Les machines à double contrepoids, dissymétriques, libéraient encore plus d'énergie cinétique. Grâce à ces innovations, les plus puissants trébuchets **projetaient des projectiles de plusieurs centaines de kilogrammes sur plusieurs centaines de mètres**.
+### L'influence du trébuchet sur les stratégies de siège
+Face à la puissance de feu du trébuchet, les ingénieurs militaires ont dû adapter les fortifications. Les remparts ont été épaissis et des tours massives dotées de leur propre artillerie de siège ont vu le jour. Sous le règne du sultanat ayyoubide, ces tours pouvaient mesurer jusqu'à 30 mètres de côté. Elles permettaient de tenir les trébuchets ennemis à distance tout en les bombardant à leur tour. Cette évolution marqua le passage du château médiéval protégé par de hautes courtines à l'enceinte massive défendue par d'imposantes tours.
+### L'utilisation dévastatrice du trébuchet par les Mongols
+Maîtres dans l'art de la guerre de siège, les Mongols combinaient la mobilité de leur cavalerie à l'usage stratégique du trébuchet. Lors du siège de Kaffa en Crimée en 1345-1346, ils auraient catapulté par-dessus les remparts des cadavres infectés par la peste, provoquant une épidémie dévastatrice. Depuis Kaffa, la peste noire se serait ensuite propagée par contagion aux ports de la Méditerranée, ravageant l'Europe. Cet épisode terrible illustre l'influence décisive du trébuchet sur les stratégies de guerre biologique, annonçant sa postérité dans les armes de destruction massive.
+### L'héritage du trébuchet dans les sciences et les techniques
+Bien que remplacé progressivement par l'artillerie à poudre à partir du 15ème siècle, le trébuchet a légué son principe de la pesanteur à de nombreuses inventions. Son contrepoids oscillant aurait inspiré le balancier des horloges mécaniques tandis que ses améliorations successives ont contribué à formaliser la notion de travail mécanique. Ses projectiles pesant jusqu'à plusieurs tonnes ont également fasciné des savants comme Galilée qui y voyait l'ancêtre du boulet de canon et de la balistique moderne. Ainsi, bien après sa disparition des champs de bataille, le trébuchet continue d'influencer nos technologies et notre compréhension de la physique.
+![La puissance des Mongols et leur utilisation de la machinerie de si\xe8ge](https://i.pinimg.com/originals/02/ad/b4/02adb4012db9a74cfce3a54cd88fe9d0.jpg)

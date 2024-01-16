@@ -1,0 +1,28 @@
+---
+layout: post
+title: "Les risques s\xe9curitaires \xe0 Mogadiscio, en Somalie"
+date: 2023-12-23 23:43:48 +0000
+categories: "News"
+excerpt_image: https://cdn-s-www.vosgesmatin.fr/images/653EEA02-90D1-43B0-AE40-35EDFDA80E87/NW_raw/l-explosion-s-est-produite-devant-l-hotel-safari-un-etablissement-populaire-de-mogadiscio-photo-afp-1508071382.jpg
+image: https://cdn-s-www.vosgesmatin.fr/images/653EEA02-90D1-43B0-AE40-35EDFDA80E87/NW_raw/l-explosion-s-est-produite-devant-l-hotel-safari-un-etablissement-populaire-de-mogadiscio-photo-afp-1508071382.jpg
+---
+
+### La situation actuelle à Mogadiscio
+**Mogadiscio, capitale de la Somalie**, vit malheureusement toujours des situations de grande instabilité et d'insécurité. Depuis la chute du gouvernement central somalien en 1991, la ville a été déchirée par des luttes de pouvoir entre différents groupes islamistes radicaux et milices. Bien que certains progrès aient été réalisés ces dernières années avec le soutien de l'Union africaine pour stabiliser le pays, de nombreuses régions échappent encore au contrôle de l'État et les enlèvements contre rançon demeurent un fléau grave. 
+
+![](https://www.thoughtco.com/thmb/s08FjTA8SFUb0p-LCbleqznhvsk=/2956x1967/filters:fill(auto,1)/mogadishu-59f3155403f4020010316a8c.jpg)
+### Les risques pour les étrangers
+Les témoignages concordent pour dire que se promener seul dans les rues de Mogadiscio en tant qu'étranger blanc ou asiatique représente un danger extrême **d'enlèvement ou de prise d'otage**. Même accompagné de gardes du corps locaux armés, les tentatives **d'enlèvement contre rançon** ne sont pas à exclure comme l'a appris de façon effrayante un homme d'affaires lors d'un déplacement professionnel. La seule véritable sécurité semble résider dans le fait d'être de nationalité somalienne.
+### La situation à l'hôtel
+Les rares visiteurs qui prennent le risque de se rendre à Mogadiscio doivent impérativement séjourner dans les complexes hôteliers les plus sécurisés, véritables forteresses surveillées en permanence par des milices privées. Mais même là, des attentats terroristes peuvent toujours survenir comme l'a montré la bombe qui a frappé l'hôtel où séjournait précédemment un homme. Il faut donc rester terré dans l'enceinte de l'établissement et ne pas tenter de visiter la ville sans escorte armée.
+### Le témoignage d'un ancien militaire néo-zélandais
+Un ancien commando néo-zélandais rompu aux opérations dangereuses dans le monde entier a affirmé que Mogadiscio était la seule destination où il refusait catégoriquement de travailler, tant le niveau de risque pour la sécurité y est élevé. Même pour des professionnels surentraînés et armés, circonscrire les menaces dans une ville à ce point ingouvernable demeure impossible. Le message est on ne peut plus clair : à moins d'être dans l'armée somalienne, Mogadiscio doit être absolument proscrite des destinations touristiques.
+### Les conseils pour y survivre 
+Dans l'hypothèse où un voyage à Mogadiscio serait absolument incontournable, plusieurs conseils essentiels de survie sont à suivre : embaucher des gardes du corps locaux expérimentés en grand nombre et bien armés, ne quitter sous aucun prétexte l'hôtel sans escorte qualifiée, éviter de conduire soi-même tout en véhicule, ne pas consommer les aliments et l'eau locaux non purifiés, et faire preuve d'une prudence et d'une méfiance maximales en permanence. Mais là encore, rien ne garantit l'issue positive d'un tel périple dans une ville où règnent violence et anarchie.
+### L'avis d'experts en sécurité 
+Interrogés, des experts en sécurité internationale confirment unanimement que **Mogadiscio demeure de très loin la destination la plus dangereuse du monde** pour des non-Somaliens. Même en dépensant des sommes colossales, la garantie de sécurité n'y est jamais absolue face à des menaces imprévisibles. Plutôt que d'y risquer sa vie bêtement, ils recommandent de rechercher le frisson et l'aventure dans des pays plus stables, même les plus reculés. La Somalie ne sera sûre à nouveau que lorsque son gouvernement central aura retrouvé le contrôle effectif de tout son territoire.
+### L'espoir d'un avenir meilleur
+Bien que la situation sécuritaire à Mogadiscio demeure extrêmement problématique pour de longues années encore probablement, certains observateurs optimistes notent tout de même des progrès encourageants dans la reconstruction de l'État somalien. Avec une croissance économique naissante, un système judiciaire qui se structure à nouveau et des forces de sécurité de plus en plus compétentes, l'horizon d'un retour à la stabilité pourrait peut-être se profiler avant la fin de la décennie. D'ici là, le devoir des bonnes volontés est de soutenir pacifiquement la Somalie dans cette épreuve, en évitant de mettre sa population en danger inutilement.
+### Conclusion
+Bien que fascinante sur le plan culturel et porteuse de richesses touristiques certaines, la ville de **Mogadiscio et la Somalie dans son ensemble doivent pour l'instant demeurer proscrites des circuits touristiques**, tant que la paix civile et le monopole de la violence par l'État n'y seront pas durablement rétablis. Espérons que les efforts combinés des autorités somaliennes et de la communauté internationale aboutiront à terme à un véritable retour à la sécurité dans ce pays meurtri, permettant alors à ses merveilles de se dévoiler en toute quiétude aux yeux du monde. En attendant, la prudence reste de mise.
+![Les risques s\xe9curitaires \xe0 Mogadiscio, en Somalie](https://cdn-s-www.vosgesmatin.fr/images/653EEA02-90D1-43B0-AE40-35EDFDA80E87/NW_raw/l-explosion-s-est-produite-devant-l-hotel-safari-un-etablissement-populaire-de-mogadiscio-photo-afp-1508071382.jpg)

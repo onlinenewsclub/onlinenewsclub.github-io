@@ -1,0 +1,26 @@
+---
+layout: post
+title: "Les voyages dans le temps selon le Coran et la religion musulmane"
+date: 2024-01-19 22:12:34 +0000
+categories: "News"
+excerpt_image: https://ds1.static.rtbf.be/article/image/1920xAuto/4/7/f/1afb7f4a0a78020f27ba6fdb021a397c-1582103862.jpg
+image: https://ds1.static.rtbf.be/article/image/1920xAuto/4/7/f/1afb7f4a0a78020f27ba6fdb021a397c-1582103862.jpg
+---
+
+### Les jeunes de la caverne 
+Les jeunes de la caverne sont un groupe de jeunes chrétiens qui ont fui la persécution de leur peuple non-croyant pour se réfugier dans une [caverne](https://thetopnews.github.io/comparing-the-different-models-of-the-nintendo-switch-console/). Selon le récit du Coran, ils y sont restés endormis pendant **300 ans**, démontrant ainsi la possibilité de voyager dans le temps de manière passive. Lorsqu'ils se sont réveillés, ils ont été surpris de constater que la société avait profondément changé durant leur long sommeil. Ce récit coranique montre que, bien que le voyage dans le temps actif ne soit pas possible, Allah peut faire en sorte que le temps passe plus lentement ou plus rapidement pour certains individus de manière miraculeuse.
+
+![](http://img.aws.la-croix.com/2013/02/01/906436/L-islam-dans-Constitutions-pays-monde-musulman_0_1400_1034.jpg)
+### L'homme qui est mort 100 ans 
+Un autre exemple de voyage dans le temps mentionné dans le Coran est l'histoire d'un homme qui est passé devant une ville détruite. Ne croyant pas qu'Allah puisse faire revivre ce qui est mort, il a été puni en étant mis en sommeil pendant **100 ans**. À son réveil, il a constaté avec étonnement que ses aliments et boissons étaient restés intacts malgré le temps écoulé, prouvant qu'il avait bien voyagé dans le futur de manière passive. Cet épisode démontre qu'Allah peut manipuler le temps à sa guise et punir les incredules en les faisant voyager dans le temps de manière miraculeuse.
+### La nuit du voyage céleste 
+L'une des histoires les plus fascinantes rapportées par le prophète Mohammed concerne sa **"nuit du voyage céleste"**. Selon la tradition islamique, le prophète a effectué durant son sommeil un voyage miraculeux de La Mecque à la mosquée Al-Aqsa à Jérusalem, puis jusqu'aux cieux où il a rencontré de nombreux prophètes et anges, avant de redescendre sur terre - le tout en une seule nuit. Bien que ce voyage nocturne ne soit pas un voyage dans le temps physique, il démontre la capacité d'Allah à manipuler l'espace et le temps pour faire voyager l'âme et l'esprit de Ses prophètes hors de notre dimension terrestre.
+### Les anges et l'Esprit Saint dans les cieux 
+Un verset coranique fait référence à une durée astronomique pour décrire le voyage quotidien des anges et de l'Esprit Saint vers Allah : "Une journée dont la mesure serait de **cinquante mille ans**". Certains exégètes musulmans interprètent cette phrase comme signifiant que le temps tel que nous le percevons n'a pas de sens dans les sphères célestes, et qu'une "journée" pourrait en réalité correspondre à des millions d'années terrestres. Cette référence ouvre la porte à l'idée que le temps lui-même peut être manipulé par la volonté divine.
+### Les prophéties sur l'avenir 
+De nombreux hadiths rapportent que le prophète Mohammed a fait des **prophéties détaillées** sur des évènements qui ne sont survenus que des siècles plus tard, comme la découverte de l'Amérique ou la chute de l'Empire Ottoman. Ces récits démontrent que, grâce à sa connaissance parfaite du temps donnée par Allah, le prophète pouvait avoir un aperçu du futur et prédire des événements à venir. Certains exégètes perçoivent dans ces récits la marque d'un rapport au temps non-linéaire permise par la toute-puissance divine. 
+### La vision du Paradis et de l'Enfer 
+L'un des épisodes les plus marquants du voyage nocturne du prophète est sa vision du Paradis et de l'Enfer. Or, selon la doctrine islamique, ces deux autres mondes n'existeront véritablement qu'après le Jugement Dernier. Le fait que Mohammed ait pu les observer de son vivant démontre à nouveau que le temps tel que nous le concevons n'a pas de sens aux yeux d'Allah. Par sa grâce, il peut faire voyager Ses prophètes hors de notre dimension spatio-temporelle pour leur dévoiler des réalités à venir.
+### Conclusion
+De nombreux récits coraniques et hadiths rapportent des événements impliquant une altération ou une manipulation du temps, qu'elle soit passive ou permise par une vision prophétique. Bien que le voyage actif dans le temps physique ne soit pas possible, la foi islamique enseigne que Dieu transcende les lois temporelles et peut les modifier à Sa guise. Cela démontre Sa toute-puissance et Sa capacité à dévoiler des fragments du futur à Ses prophètes élus. Si le temps n'a pas de prise sur l'éternelle volonté d'Allah, nul ne peut prédire les merveilles qu'Il pourrait encore réserver à Ses croyants.
+![Les voyages dans le temps selon le Coran et la religion musulmane](https://ds1.static.rtbf.be/article/image/1920xAuto/4/7/f/1afb7f4a0a78020f27ba6fdb021a397c-1582103862.jpg)

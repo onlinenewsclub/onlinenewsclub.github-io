@@ -1,0 +1,26 @@
+---
+layout: post
+title: "Un voyage spirituel et culturel \xe0 travers le Gujarat, en Inde"
+date: 2024-03-25 10:37:58 +0000
+categories: "News"
+excerpt_image: http://www.udaipurvoyage.com/wp-content/uploads/2017/01/gujarat-tour.jpg
+image: http://www.udaipurvoyage.com/wp-content/uploads/2017/01/gujarat-tour.jpg
+---
+
+### Visiter Ahmedabad 
+Ahmedabad est la plus grande ville du Gujarat et offre aux visiteurs l'occasion de plonger dans son riche patrimoine culturel et historique. Durant votre séjour, vous pourrez admirer des **monuments historiques hérités de l'époque moghole**, comme le **mausolée d'Ahmed Shah[ ou les ](https://wordtimes.github.io/2024-01-10-xdcberlebenstipps-f-xfcr-paraguay/)remparts de la vieille ville**, qui témoignent de l'influence perse sur l'architecture locale. Les passionnés d'histoire apprécieront la visite du **Sabarmati Ashram**, ancien site où séjourna Mahatma Gandhi, et du **Musée Calico** qui retrace l'évolution des techniques textiles en Inde. Prenez également le temps de flâner dans les bazaars de la ville pour découvrir son ébulliente activité commerciale. 
+
+![](https://i.twic.pics/v1/https://www.explo.com/media/catalog/product/cache/1/thumbnail/9df78eab33525d08d6e5fb8d27136e95/a/4/a410-voyage-inde-gujarat-junagadh-pc.jpg)
+### Découverte du temple de Somnath
+Après une nuit dans le train, vous arriverez à Veraval, à quelques kilomètres du site sacré de Somnath. Situé sur les rives de l'océan Indien, le temple dédié à Shiva est l'un des douze **jyotirlingas** les plus importants de l'hindouisme. Participez aux cérémonies du matin et du soir qui rassemblent de nombreux pèlerins, puis profitez du calme de la plage pour méditer sur la grandeur de ce lieu saint. Les plus sportifs pourront également s'adonner à des activités nautiques ou faire un safari dans la réserve naturelle proche de Sasan Gir, refuge de lions d'Asie. 
+### Exploring Dwarka, la cité sacrée du dieu Krishna
+Empruntez la route côtière menant à Dwarka, ville mythique associée au dieu Krishna. Admirez les paysages désertiques bordés par **l'Océan Indien** tout au long du voyage. À votre arrivée, rendez-vous au célèbre temple de Dvarkinath pour assister aux offices. Profiterez également de votre séjour pour découvrir les autres sites religieux de la ville, comme la grotte où Krishna aurait vécu pendant son enfance. Les amateurs de plages pourront admirer les couchers de soleil sur la baie de Dwarka ou se balader le long de la côte rocheuse parsemée de grottes. 
+### Découverte du patrimoine de Porbandar 
+Située sur la route menant à Dwarka, Porbandar recèle de nombreux trésors historiques à découvrir. Rendez-vous au **lieu de naissance de Gandhi** pour en savoir plus sur la jeunesse du « père de l'Inde ». Payez également votre respects à la mémoire du Mahatma dans la chapelle commémorative voisine. Les amateurs d'histoire apprécieront la visite du palais royal de la ville, témoin du passé princier de Porbandar. Avant de repartir, jets un coup d'œil aux bateaux de pêche au large de la plage et dégustez les fameux fruits de mer locaux.
+### Explorations dans la région de Junagadh 
+Située à mi-chemin entre Ahmedabad et Somnath, Junagadh regorge de sites culturels à découvrir. Commencez votre visite par l'imposant fort d'Uparkot, qui domine la ville de ses remparts du XIIe siècle. Dirigez-vous ensuite vers les grottes bouddhistes de Khambhalida taillées à flanc de montagne. Les amateurs d'architecture apprécieront l'élégant mausolée du XIXe siècle de Mahabat Maqbara. Terminez votre journée en vous ressourçant sur les pentes du mont Girnar, haut lieu du jaïnisme. N'oubliez pas de tester les spécialités culinaires locales comme le khaman et les confiseries de Junagadh.
+### Plongée dans l'univers du jaïnisme à Palitana  
+Située à deux heures de route de Junagadh, Palitana est le troisième lieu le plus sacré pour les jaïns après Shatrunjaya et Sammed Shikhar. Admirez les 999 temples qui couronnent les collines, certains datant du IXe siècle. Contrairement aux autres hauts lieux religieux où l'on peut grimper, la montagne sacrée de Palitana est uniquement accessible à pied par respect pour les multiples animaux qui y vivent. Profitez de cette randonnée contemplative pour méditer sur les enseignements de non-violence prônés par cette philosophie. 
+### Immersion dans la nature au parc national de Sasan Gir 
+Terminez votre voyage spirituel et culturel dans le Gujarat par une journée dans la réserve naturelle de Sasan Gir, berceau des lions d'Asie. Participez à un safari en jeep tôt le matin ou en fin de journée, moments privilégiés pour observer les majestueux félins dans leur habitat naturel. En dehors des visites guidées, profitez des sentiers de randonnées pour observer d'autres espèces sauvages comme les langurs, les chacals ou les cerfs. Pique-niquez au son des cris des oiseaux avant de reprendre la route du retour, richi d'expériences mémorables au cœur de la nature indienne.
+![Un voyage spirituel et culturel \xe0 travers le Gujarat, en Inde](http://www.udaipurvoyage.com/wp-content/uploads/2017/01/gujarat-tour.jpg)

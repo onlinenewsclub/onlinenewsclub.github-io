@@ -1,0 +1,25 @@
+---
+layout: post
+title: "La logistique des compagnies de livraison et le r\xf4le central de leurs hubs"
+date: 2024-02-27 05:34:16 +0000
+categories: "News"
+excerpt_image: https://storage.canalblog.com/79/85/943556/80438845_o.jpg
+image: https://storage.canalblog.com/79/85/943556/80438845_o.jpg
+---
+
+L' efficacité et le coût-efficacité sont des compromis importants pour les compagnies de livraison telles que [FedEx et UPS](https://travelokla.github.io/2024-01-04-conseils-utiles-pour-votre-voyage-au-japon/). Bien que la rapidité de livraison soit importante pour les clients, le temps nécessaire pour livrer un colis de quelques heures ou quelques jours ne constitue généralement pas un problème majeur. Cependant, l'argent est crucial pour ces entreprises, car les coûts élevés liés au transport aérien et au réseau de distribution peuvent les mettre en difficulté financière. C'est pourquoi elles ont développé un modèle logistique centré autour de grands hubs de tri, comme **Worldport de Louisville** pour UPS. 
+### Optimiser les coûts de transport aérien
+Les compagnies comme UPS et FedEx ne peuvent pas se permettre de maintenir leur propre flotte d'avions pour chaque liaison. C'est beaucoup trop coûteux de posséder et d'entretenir autant d'appareils. Au lieu de cela, elles concentrent leurs envois dans de grands hubs régionaux, d'où les colis sont ensuite redistribués vers leur destination finale. Cela leur permet de remplir davantage leurs avions et de réduire les coûts par colis transporté. L'utilisation d'un hub unique comme Worldport est également plus économique car moins d'appareils et de personnel sont nécessaires.
+
+![](https://www.ionos.fr/digitalguide/fileadmin/DigitalGuide/Schaubilder/La-gestion-de-la-chaine-logistique.png)
+### Gérer efficacement le tri des colis
+Les hubs jouent également un rôle essentiel dans le tri et le routage des colis. Ils disposent d'immenses centres de tri automatisés où des milliers de colis peuvent être scannés, triés et acheminés vers les bons avions ou camions en quelques heures seulement. Cela permet d'organiser de façon optimale la circulation des colis à travers le réseau de distribution. Des installations à la fine pointe de la technologie sont requises pour gérer un tel volume de trafic, ce qui justifie encore davantage la concentration dans de grands hubs.
+### Offrir un service rapide même sur de longues distances
+Même pour des livraisons entre deux États éloignés comme l'Arizona et la Californie, l'utilisation d'un hub permet d'assurer une livraison rapide en moins de trois jours. Le colis est d'abord acheminé par camion vers le hub aérien le plus proche, comme Louisville, puis transporté par avion vers un autre hub à proximité de sa destination finale avant d'être livré par route. Ce système à deux étapes optimise les flux tout en offrant un service compétitif, même sur de longues distances.
+### S'implanter dans des villes à coûts réduits
+Pour des raisons économiques, les hubs sont généralement situés dans des villes de taille moyenne où les coûts fonciers et salariaux sont moins élevés qu'ailleurs. Louisville est un exemple typique, une ville plus petite permettant à UPS de bénéficier de tarifs aéroportuaires avantageux. Les zones rurales conviennent aussi bien pour implanter de vastes centres de tri et des aéroports cargo sans saturation. Cette localisation stratégique des hubs, loin des grandes métropoles, est essentielle à la rentabilité du modèle.
+### Des contraintes réglementaires à respecter  
+Bien que le recours massif aux hubs présente de nombreux avantages économiques, il doit respecter certaines exigences. Notamment en termes de droit du travail, car la manutention et le transport de colis impliquent des heures de travail et cadences soutenues pour les employés. Les compagnies doivent aussi se conformer à la réglementation sur les temps de conduite des chauffeurs routiers, afin de garantir leur sécurité et celle des autres usagers. Le volume important de fret aérien nécessite également des autorisations spécifiques auprès des autorités aéronautiques.
+### Vers une optimisation continue des réseaux logistiques  
+Avec la croissance constante du e-commerce, les géants de la messagerie cherchent sans cesse à améliorer leur efficacité et réduire les coûts. L'avenir passe probablement par un renforcement de l'automatisation dans les hubs et le développement de centres de plus petite taille en périphérie des grandes agglomérations. L'utilisation accrue de drones et de véhicules autonomes promet également defluidifier les derniers kilomètres de livraison. Les réseaux devraient également s'internationaliser davantage pour accompagner le commerce mondial.
+![La logistique des compagnies de livraison et le r\xf4le central de leurs hubs](https://storage.canalblog.com/79/85/943556/80438845_o.jpg)

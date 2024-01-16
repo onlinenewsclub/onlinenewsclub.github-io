@@ -1,0 +1,26 @@
+---
+layout: post
+title: "H\xe9bergements abordables en Chine: Les meilleures options"
+date: 2024-03-06 05:48:34 +0000
+categories: "News"
+excerpt_image: https://media.ouest-france.fr/v1/pictures/007ab79414f1fe4ae235f9dea1fb1ed5-7969285.jpg?width=1000&amp;client_id=eds&amp;sign=a913abbdab0f38d80d93381343fd66b86ad6b8fb2bc4df5768b93163dad2f865
+image: https://media.ouest-france.fr/v1/pictures/007ab79414f1fe4ae235f9dea1fb1ed5-7969285.jpg?width=1000&amp;client_id=eds&amp;sign=a913abbdab0f38d80d93381343fd66b86ad6b8fb2bc4df5768b93163dad2f865
+---
+
+### Trouver facilement un hébergement grâce aux applications
+Les applications sont très pratiques pour trouver et réserver facilement un hébergement abordable en Chine. **Trip.com** est une excellente application, comparable à **Booking.com**. Elle propose une grande sélection d'hôtels, des établissements haut de gamme jusqu'aux auberges de jeunesse. À Pékin par exemple, vous trouverez plus de 4347 hôtels entre 5$ et des prix plus élevés. Les descriptions donnent souvent une carte indiquant la station de métro la plus proche, ce qui est pratique. La réservation en ligne est très simple. La plupart du temps, il faudra déposer un acompte à l'arrivée, qui sera intégralement remboursé au départ. [Home Inn](https://logurl.github.io/2024-01-06-u8153-u7279-u70c8-u5927-u5e1d-u751f-u5e73-u7ec6-u8282-u4e0e-u5fc3-u7406-u5206-u6790/), **Hanting Hotels** et **Orange Hotel** sont également de grandes chaînes proposant des prix abordables, entre 23$ et 50$, avec des chambres toujours très propres et le wifi gratuit.  
+
+![](https://images.voyageschine.com/allpicture/2019/11/852c6a22a86245709dedfa59.jpg)
+### Trouver un hébergement pas cher dans les auberges de jeunesse
+Les auberges de jeunesse sont une solution économique intéressante. Le site **Hostelworld** référence de nombreuses auberges partout en Chine. Il est possible de trouver une chambre commune pour seulement 8-20$, voire une chambre privée un peu plus cher, autour de 20$. Ces établissements conviennent parfaitement pour des budgets serrés, surtout pour les séjours en solo. Bien que moins confortables qu'un hôtel, le rapport qualité-prix reste très bon.    
+### Choix d'un hôtel de chaîne internationale propre et sûr
+Pour un hébergement modéré de qualité, il vaut mieux opter pour des chaînes hôtelières internationales fiables comme **Holiday Inn Express**, plutôt que des établissements encore moins chers. Ces hôtels offrent généralement un bon niveau d'hygiène, de sécurité et de services adaptés aux voyageurs étrangers (présence d'employés parlant anglais).  
+### Location sur Airbnb: une mauvaise idée en Chine
+Contrairement à d'autres pays, locater un logement sur **Airbnb** en Chine n'est généralement pas recommandé. Mieux vaut réserver directement sur des applications locales fiables comme **Ctrip** ou **Meituan**. Ces platesformes proposent également des billets pour les sites touristiques, restaurants et activités. Avec un budget quotidien de 30$, il est possible de trouver facilement une chambre d'hôtel fonctionnelle d'environ 10 à 20m2 à Pékin. Les auberges de jeunesse offrent des prix encore plus bas, autour de 10$ la nuit.
+### Continuer à voyager de manière économique 
+Même avec un petit budget, il est possible de continuer à voyager en Chine de façon économique. Les transports publics comme le métro sont très abordables. Pour les trajets plus longs, le train sera souvent moins cher que l'avion ou le bus. Privilégier également la cuisine de rue et les restaurants locaux aux chaînes internationales. Profiter des nombreux sites touristiques gratuits ou à petit prix. En préparant son voyage de manière astucieuse, on peut facilement multiplier les expériences pour seulement 30-50$ par jour. L'essentiel est de rester ouvert et curieux, peu importe le confort!
+### Conserver un esprit positif malgré les contraintes budgétaires 
+Voyager sur un petit budget impose des contraintes, mais permet surtout de vivre des aventures inoubliables. Même si les conditions de voyage sont plus basiques, le plus important reste de garder un esprit positif. Apprécier les rencontres enrichissantes avec les locaux, savourer chaque instant dans le pays. Apprendre à s'adapter à chaque situation avec flexibilité. Au final, ce sont ces souvenirs et expériences qui resteront bien plus que le confort matériel. Un voyage réussi est celui qui enrichit sur le plan humain bien plus que financier. Restez donc ouvert à chaque découverte, quel que soit le budget!   
+### Profiter pleinement de destinations abordables
+La Chine regorge de destinations magnifiques, certaines très peu touristiques et donc abordables. En dehors des grandes villes, de nombreuses régions spectaculaires à découvrir pour seulement quelques dollars par jour. Le Yunnan, le Sichuan, le Tibet ou le Xinjiang offrent des paysages à couper le souffle. Prendre le temps d'échanger avec les locaux rencontrés sur la route enrichira certainement le voyage bien plus que tout confort matériel. Avec un esprit d'aventure et de découverte, même les voyages low-cost peuvent se révéler inoubliables.
+![H\xe9bergements abordables en Chine: Les meilleures options](https://media.ouest-france.fr/v1/pictures/007ab79414f1fe4ae235f9dea1fb1ed5-7969285.jpg?width=1000&amp;client_id=eds&amp;sign=a913abbdab0f38d80d93381343fd66b86ad6b8fb2bc4df5768b93163dad2f865)

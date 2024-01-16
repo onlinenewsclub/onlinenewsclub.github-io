@@ -1,0 +1,30 @@
+---
+layout: post
+title: "Mon exp\xe9rience en C\xf4te d'Ivoire"
+date: 2024-01-01 02:12:52 +0000
+categories: "News"
+excerpt_image: https://d1bvpoagx8hqbg.cloudfront.net/originals/experience-abidjan-cote-divoire-yann-ange-a36e90f243175a9c68cb78f873e86c83.jpg
+image: https://d1bvpoagx8hqbg.cloudfront.net/originals/experience-abidjan-cote-divoire-yann-ange-a36e90f243175a9c68cb78f873e86c83.jpg
+---
+
+### L'Abidjan des années 1970
+Je suis resté et ai travaillé à Abidjan pendant près de 3 ans, de 1973 à 1975. À cette époque, le quartier du Plateau au centre-ville pouvait être comparé à un chic quartier commercial parisien. Toutes les grandes marques de mode et de joaillerie y étaient représentées. Les riches étaient très riches, les politiciens envoyaient leurs enfants dans des écoles privées à Paris, et les Français exerçaient un fort contrôle culturel et économique. Malheureusement, avec la mort du président Houphouët-Boigny quelques années plus tard, les jeunes hommes au gouvernement étaient désireux de s'emparer du pouvoir et la dégringolade a commencé. Mais pour répondre à la question, et je suis sûr que cela s'applique toujours aujourd'hui, c'est le grand écart entre riches et pauvres qui est le plus remarquable. 
+
+![](https://i.ytimg.com/vi/yjlPmr9lzI8/maxresdefault.jpg)
+### La gentillesse du peuple ivoirien
+Le peuple ivoirien est incroyablement gentil et doux et méticuleusement propre lorsque vous rencontrez ceux qui vivent dans les villages de la campagne. Comme partout dans le monde, les jeunes sont attirés par la grande ville, dans ce cas Abidjan. Malheureusement, beaucoup succombent aux charmes de l'argent facile et d'un **"style de vie occidental"**. Beaucoup y parviennent par des moyens criminels et, dans les plus hautes sphères, par la corruption. La Côte d'Ivoire était autrefois un paradis.
+### Une première visite révélatrice
+J'ai visité la Côte d'Ivoire en 2009, juste avant les élections et les brèves flambées de violence qui ont suivi. En tant que privilégié occidental, j'avais des notions terriblement racistes de l'Afrique en général avant mon voyage. C'est donc le regard d'un privilégié occidental. Pendant trois semaines, nous avons sillonné le sud-est de la Côte d'Ivoire, visitant plusieurs projets agricoles près d'Abengourou, Abidjan et Agboville. Parlant couramment le français, nous nous sommes liés d'amitié avec des enfants à Agboville et avons rencontré leurs parents, ce qui m'a permis d'aller au-delà des hôtels destinés aux Occidentaux et aux travailleurs du développement. 
+### Un ajustement majeur
+Le plus grand ajustement que j'ai dû faire était à quel point tout allait bien. Bien sûr, il y avait des problèmes, ce n'était pas une extrême pauvreté et une incompétence généralisées. Mais cela ne représentait nullement la norme. J'avais été élevé dans l'idée que **"l'Afrique était un désastre"**, à travers des publicités sur sa pauvreté ou l'idée qu'elle était un lieu de beauté mais aussi de difficultés. Il a donc été déstabilisant de constater à quel point ces idées étaient fausses.
+### La culture de l'instant présent
+Le deuxième grand ajustement a été de réaliser à quel point les Occidentaux sont obsédés par leur montre. Nous sommes tellement concentrés sur l'efficacité et le temps qui passe. Cela prend le pas sur nos amis et presque tout le reste. Et ce n'est pas un problème, cela convient à beaucoup. Mais en Côte d'Ivoire, surtout dans les zones rurales, ce n'était tout simplement pas le cas. Je n'avais jamais vu des gens aussi peu soucieux du passage du temps. C'était vraiment intéressant d'observer.
+### L'hospitalité ivoirienne
+Ce qui frappe les visiteurs à leur arrivée à Abidjan est le spectacle qui s'offre à eux en traversant le pont Félix Houphouët-Boigny : les gratte-ciel du Plateau, le cœur économique, font penser à Manhattan. Car le Plateau est situé sur une presqu'île. Ensuite, ce qui marque les visiteurs est l'hospitalité des Ivoiriens et leur [joie de vivre](https://wordtimes.github.io/2024-01-10-die-l-xe4nder-guinea-und-xc4quatorialguinea/). Les Ivoiriens sont courtois, gentils et très ouverts d'esprit.
+### Un paysage rural préservé
+Lors de excursions dans le sud-est rural du pays, j'ai été frappé par la beauté des paysages et la richesse de la faune et de la flore. Les forêts luxuriantes abritent une biodiversité exceptionnelle, avec de nombreuses espèces d'oiseaux, de singes et d'éléphants. Le travail des agriculteurs pour cultiver le cacao, l'hévéa, le café ou l'anacarde se fait de manière traditionnelle et respectueuse de l'environnement. Malgré les problèmes politiques, l'agriculture reste le secteur économique le plus important, grâce à la richesse des sols volcaniques. 
+### Une économie prometteuse 
+Bien que la Côte d'Ivoire ait connu des turbulences ces dernières années, son économie demeure l'une des plus dynamiques d'Afrique de l'Ouest, avec de nombreux défis mais aussi des atouts significatifs. Abidjan se développe à grande vitesse, avec des projets immobiliers audacieux et une nouvelle classe moyenne en expansion. Les investisseurs étrangers sont de plus en plus nombreux dans les domaines des hautes technologies, de l'agroalimentaire et des énergies renouvelables. Avec sa stabilité retrouvée, la Côte d'Ivoire a tous les atouts pour devenir une puissance économique régionale.
+### Un pays qui m'a transformé 
+Mon séjour en Côte d'Ivoire m'a conduit à remettre profondément en question nombre de mes certitudes. J'ai découvert une culture et un mode de vie extrêmement riches, loin des clichés véhiculés en Occident. Cette réalité m'a ouvert les yeux sur la diversité des voies possibles pour s'épanouir. Aujourd'hui, chaque fois que je tombe dans les pièges du matérialisme et de l'individualisme, je pense aux Ivoiriens et à leur art de **vivre ensemble**. Ce voyage a changé à jamais ma compréhension du monde.
+![Mon exp\xe9rience en C\xf4te d'Ivoire](https://d1bvpoagx8hqbg.cloudfront.net/originals/experience-abidjan-cote-divoire-yann-ange-a36e90f243175a9c68cb78f873e86c83.jpg)
