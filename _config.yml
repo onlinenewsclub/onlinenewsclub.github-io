@@ -1,12 +1,12 @@
 # Site
-name: 'Trending source'
+name: 'Online News Club'
 description: 'News and Events'
 logo: 'assets/images/logo.png'
 favicon: 'assets/images/favicon.ico'
-url: "https://trendingsource.github.io" # the base hostname & protocol for your site, e.g. https://example.com
+url: "https://onlinenewsclub.github.io" # the base hostname & protocol for your site, e.g. https://example.com
 # baseurl: '/'
-disqus: 'trendingsource'
-email: 'trendingsource@gmail.com'
+disqus: 'onlinenewsclub'
+email: 'onlinenewsclub@gmail.com'
 
 include: ["_pages"]
 # permalink: /:title/
@@ -22,19 +22,19 @@ plugins:
 authors:
     ngoc:
       name:           Ngoc
-      site:           https://trendingsource.github.io/index.html
+      site:           https://onlinenewsclub.github.io/index.html
       avatar:         assets/images/avatar1.jpg
       bio:            "Hi, I am ngoc, the Blog Editor of \"Trending source\", the the site you're currently previewing. I hope you like it!"
-      email:          trendingsource@gmail.com
-      twitter:        https://twitter.com/trendingsource
+      email:          onlinenewsclub@gmail.com
+      twitter:        https://twitter.com/onlinenewsclub
 
     hanna:
       name:           Hanna
-      site:           https://trendingsource.github.io/index.html
+      site:           https://onlinenewsclub.github.io/index.html
       avatar:         assets/images/avatar2.jpg
       bio:            "Blogger, fashionista, love to explore new ideas and write on my morning coffee!"
       email:          citylodge.org@gmail.com
-      twitter:        https://twitter.com/trendingsource
+      twitter:        https://twitter.com/onlinenewsclub
 
 # Defaults
 defaults:
